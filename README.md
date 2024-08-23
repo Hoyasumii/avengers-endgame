@@ -2315,3 +2315,4 @@ RED SKULL (2014): Consider me a guide. To you, and to all who seek the Soul Ston
 NATASHA ROMANOFF: Oh, good. You tell us where it is. Then we'll be on our way.
 
 RED SKULL (2014): Ah, liebchen– If only it were that easy.
+
