@@ -2390,4 +2390,4 @@ CLINT BARTON: No. Please, no.
 
 NATASHA ROMANOFF: It's okay.
 
-CLINT BARTON: Please– [Natasha kicks the wall, 
+CLINT BARTON: Please– [Natasha kicks the wall, f
