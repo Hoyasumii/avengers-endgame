@@ -2344,4 +2344,4 @@ CLINT BARTON: Whatever it takes.
 
 NATASHA ROMANOFF: If we don't get that stone, billions of people stay dead.
 
-CLINT BARTON: Then I guess we both know wh
+CLINT BARTON: Then I guess we both know who
