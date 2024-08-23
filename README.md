@@ -824,4 +824,4 @@ NATASHA ROMANOFF: Is that Scott?
 
 TEEN SCOTT LANG: Yes, it's Scott!
 
-[Teen Scot
+[Teen Scott
