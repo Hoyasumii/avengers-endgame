@@ -1668,3 +1668,4 @@ THOR (2012): You'll be fine, Stark. Stay with us! I'll try something, okay? I ha
 
 [Thor 2012 uses the Mjolnir as the defibrillator on Tony Stark 2012]
 
+T
