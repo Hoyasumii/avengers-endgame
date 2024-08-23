@@ -2642,4 +2642,4 @@ THOR: Good. Just as long we are all in agreement. [Thunder cracks as Thor stretc
 
 [The Big Three walk over to confront Thanos face to face]
 
-THANOS (2014): You could not live with your own failure. And where did that bring you? Back to me. I thought by eliminating half of life, the other half would thrive. But you’ve shown me that’s impossible. And as long as there are those that remember
+THANOS (2014): You could not live with your own failure. And where did that bring you? Back to me. I thought by eliminating half of life, the other half would thrive. But you’ve shown me that’s impossible. And as long as there are those that remember 
