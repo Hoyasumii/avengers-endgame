@@ -1196,4 +1196,4 @@ NATASHA ROMANOFF: Hey, hey. Look at me. You okay?
 
 CLINT BARTON: [Holding up the baseball glove and throw it to Stark] Yeah, it worked. It worked.
 
-[Scene
+[Scene 
