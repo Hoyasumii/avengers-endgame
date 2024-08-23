@@ -3045,4 +3045,4 @@ QUILL: It's not necessary.
 
 THOR: It's not.
 
-QUILL: 
+QUILL: O
