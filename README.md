@@ -3127,4 +3127,4 @@ BRUCE BANNER: Hey, I said, I'm trying!
 
 BUCKY BARNES: Sam...
 
-[Sam walks toward Bucky. Sam, Bucky, and Bruce see old looking Steve s
+[Sam walks toward Bucky. Sam, Bucky, and Bruce see old looking Steve si
