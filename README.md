@@ -1750,4 +1750,4 @@ THE ANCIENT ONE (2012): ...Why?
 
 BRUCE BANNER: I have no idea. Maybe he made a mistake.
 
-THE ANCIENT ONE (2012): Or I did. [She returns to Banner control of his Hulk body and opens the E
+THE ANCIENT ONE (2012): Or I did. [She returns to Banner control of his Hulk body and opens the Ey
