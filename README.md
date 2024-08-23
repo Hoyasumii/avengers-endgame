@@ -328,4 +328,4 @@ STEVE ROGERS: That's great. You did the hardest part. You took the jump, you did
 
 [Screen Title: SAN FRANCISCO]
 
-(The camera pans to San Fra
+(The camera pans to San Fran
