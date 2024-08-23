@@ -824,4 +824,4 @@ NATASHA ROMANOFF: Is that Scott?
 
 TEEN SCOTT LANG: Yes, it's Scott!
 
-[Teen Scott gets sucked in back into the quan
+[Teen Scott gets sucked in back into the quant
