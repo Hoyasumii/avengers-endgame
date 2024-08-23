@@ -2839,4 +2839,4 @@ T'CHALLA: Clint! Give it to me.
 
 [Clint gives the Gauntlet to T'Challa, and he runs towards the van while fighting Thanos' army. Eventually he is stopped by the double edged sword, boomeranged by Thanos. When it gets back to him, he charges T'Challa, but is stopped by Wanda, who is filled with anger for the loss of Vision.]
 
-WANDA MAXIMOFF: You took everythi
+WANDA MAXIMOFF: You took everythin
