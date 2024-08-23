@@ -1414,3 +1414,4 @@ CLINT BARTON: Yeah.
 
 [They walk back into the ship, and the hatch closes. The ship takes off and speeds out of the atmosphere of Morag.]
 
+N
