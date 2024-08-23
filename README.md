@@ -1780,4 +1780,4 @@ EBONY MAW (2014): Yes. The two are linked.
 
 THANOS (2014): Search the duplicate's memories for Infinity Stones.
 
-[Memory of the meeting with all the Avengers starts playi
+[Memory of the meeting with all the Avengers starts playin
