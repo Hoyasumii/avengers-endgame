@@ -46,4 +46,4 @@ NEBULA: Wrra! [Nebula, frustrated, puts her hands in a fighting stance while loo
 
 TONY STARK: You don't need to do that. Because uh... you're just holding position. [Nebula flicks a paper football towards Tony] Oh yeah, that was close. [Nebula once again flicks a paper football towards Tony] That's a goal. We're now one apiece.
 
-NEBULA: I would like to tr
+NEBULA: I would like to try
