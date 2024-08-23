@@ -1880,4 +1880,4 @@ THOR: Ma, I have to tell you something.
 
 FRIGGA (2013): No, son. You don't. You're here to repair your future, not mine.
 
-THOR: But thi
+THOR: But this
