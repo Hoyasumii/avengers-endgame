@@ -1744,4 +1744,4 @@ BRUCE BANNER: Strange, he gave it away. He gave it to Thanos.
 
 THE ANCIENT ONE (2012): Willingly?
 
-BRUCE BANNE
+BRUCE BANNER
