@@ -40,4 +40,4 @@ CLINT BARTON: Alright, we're coming; we're hungry. [Clint looks behind him, but 
 
 [Marvel Studios Opening sequence begins with Dear Mr. Fantasy playing. Only the heroes who survived the snap are shown.]
 
-[Scene switches to Nebula and Tony on the
+[Scene switches to Nebula and Tony on the 
