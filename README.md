@@ -216,4 +216,4 @@ CAROL DANVERS: Because before, you didn't have me.
 
 RHODEY: Hey, new girl, everyone here is about that superhero life. And if you don't mind my asking, where the hell have you been all this time?
 
-CAROL DANVERS: There are a lot of other planets in the universe. And unfortunately, they didn't have you g
+CAROL DANVERS: There are a lot of other planets in the universe. And unfortunately, they didn't have you gu
