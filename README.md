@@ -310,4 +310,4 @@ YEARS
 
 LATER
 
-[We see shots o
+[We see shots of
