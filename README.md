@@ -2849,4 +2849,4 @@ WANDA MAXIMOFF: You will.
 
 PETER PARKER: I got it!
 
-[Peter grabs the Gauntlet with his webshooters and is surrounded by Chitaur
+[Peter grabs the Gauntlet with his webshooters and is surrounded by Chitauri
