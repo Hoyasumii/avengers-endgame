@@ -2567,3 +2567,4 @@ SCOTT LANG: Wait! I'm here! I'm here, can you hear me?
 [Scene cuts to Clint in the sewer system and trying to get his bearings. He flashes a light upwards to see what happened.]
 
 CLINT BARTON: Cap?
+
