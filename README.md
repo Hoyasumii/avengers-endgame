@@ -84,4 +84,4 @@ PEPPER POTTS: Oh, my God! Oh, my God! [She and Tony embrace.]
 
 TONY STARK: It's okay.
 
-[Rocket Raccoon sits down with Nebula and takes her hand, both silently mourning their losses. In the Avengers Compound. The heroes are sitting in a living room area. Tony is sitting at a table, getting
+[Rocket Raccoon sits down with Nebula and takes her hand, both silently mourning their losses. In the Avengers Compound. The heroes are sitting in a living room area. Tony is sitting at a table, getting 
