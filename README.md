@@ -1310,4 +1310,4 @@ STEVE ROGERS: All right, we all have our assignments. Two Stones uptown, one Sto
 
 BRUCE BANNER: I think it's gratuitous, but whatever.
 
-[Present Bruce pretends to smash things in a sarcastic way. He tears his shirt off, and walks over to a car. He li
+[Present Bruce pretends to smash things in a sarcastic way. He tears his shirt off, and walks over to a car. He lig
