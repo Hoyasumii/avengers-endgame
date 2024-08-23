@@ -2478,4 +2478,4 @@ THOR: Lightning.
 
 TONY STARK: Yeah.
 
-BRUCE: Lightning w
+BRUCE: Lightning wo
