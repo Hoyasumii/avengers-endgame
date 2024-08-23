@@ -1556,4 +1556,4 @@ TONY STARK (2012): Yeah. [Hulk draws his fist back right as the elevator door cl
 
 [He follows through with the punch, making a dent in the wall right where the door was.]
 
-HULK (2012): [Pisse
+HULK (2012): [Pissed
