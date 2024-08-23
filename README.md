@@ -3055,4 +3055,4 @@ DRAX: Yeah, knives.
 
 GROOT: I am Groot.
 
-[Both Thor and Quill laugh but Qui
+[Both Thor and Quill laugh but Quil
