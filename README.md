@@ -1256,4 +1256,4 @@ SCOTT LANG: Not it.
 
 NATASHA ROMANOFF: That Time Stone guy...
 
-BRUCE B
+BRUCE BA
