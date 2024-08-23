@@ -1298,4 +1298,4 @@ CLINT BARTON: Yeah, yeah, yeah, yeah. Okay. I'll do my best.
 
 ROCKET: As promises go, that was pretty lame.
 
-NATASHA ROMANOFF: [Smiling exci
+NATASHA ROMANOFF: [Smiling excit
