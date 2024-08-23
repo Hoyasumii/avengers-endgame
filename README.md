@@ -2322,4 +2322,4 @@ RED SKULL (2014): What you seek lies in front of you... as does what you fear.
 
 NATASHA ROMANOFF: The stone is down there.
 
-RED SKUL
+RED SKULL
