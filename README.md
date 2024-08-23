@@ -940,4 +940,4 @@ BRUCE BANNER: That bad, huh?
 
 VALKYRIE: We only see him once a month, when he comes for... [looking over to a pile of kegs of stout and other beer on the side] ... supplies.
 
-BRUCE BANNER: It'
+BRUCE BANNER: It's
