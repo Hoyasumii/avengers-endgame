@@ -2284,4 +2284,4 @@ NEBULA: I'm you.
 
 [Nebula (2014) throws a punch straight at Present Nebula. Gamora (2014) walks into the room.]
 
-NEBULA: You can stop this. You know you want to. Did you see what happens in the future? Thanos finds the Soul Stone. Yo
+NEBULA: You can stop this. You know you want to. Did you see what happens in the future? Thanos finds the Soul Stone. You
