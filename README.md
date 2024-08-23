@@ -936,4 +936,4 @@ ROCKET: How you doin'?
 
 VALKYRIE: [Eyeing Rocket] He won't see you.
 
-BRUCE BANNER: That bad, 
+BRUCE BANNER: That bad, h
