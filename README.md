@@ -190,4 +190,4 @@ RHODEY: That's cute, Thanos has a retirement plan.
 
 STEVE ROGERS: So where is he?
 
-ROCKET: When Thanos snapped his fingers, Earth beca
+ROCKET: When Thanos snapped his fingers, Earth becam
