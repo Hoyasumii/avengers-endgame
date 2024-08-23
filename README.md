@@ -1046,4 +1046,4 @@ BRUCE BANNER: [from offscreen] We need you, pal.
 
 ROCKET: [Crossing his arms] There's beer on the ship.
 
-THOR: [pauses, but doesn't look up then puts the bottle down] What kin
+THOR: [pauses, but doesn't look up then puts the bottle down] What kind
