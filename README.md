@@ -3099,4 +3099,4 @@ BRUCE BANNER: For him? As long as he needs. For us? Five seconds.
 
 [Steve picks up Mjolnir (2013)]
 
-BRUCE BANNER: Ready, C
+BRUCE BANNER: Ready, Ca
