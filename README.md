@@ -324,4 +324,4 @@ JIM STARLIN: What about you?
 
 JOE RUSSO: I cried... just before dessert. But I'm seeing him again tomorrow, so...
 
-STEVE ROGERS: That's great. You did the hardest part. You took the jump, you didn't know where you were gonna come down. And that's it. That's those little brave baby steps we gotta take. To try and become whole again, try and find purpose. I went in the ice in '45 right after I met the love of my life. Woke up 70 years later. Yo
+STEVE ROGERS: That's great. You did the hardest part. You took the jump, you didn't know where you were gonna come down. And that's it. That's those little brave baby steps we gotta take. To try and become whole again, try and find purpose. I went in the ice in '45 right after I met the love of my life. Woke up 70 years later. You
