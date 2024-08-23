@@ -2040,4 +2040,4 @@ SCOTT LANG: You never wanted a time heist, you went on board with the time heist
 
 TONY STARK: I dropped the ball.
 
-SCOTT LANG: You ruined the time 
+SCOTT LANG: You ruined the time h
