@@ -2837,4 +2837,4 @@ EBONY MAW (2014): [pointing.] Sire!
 
 T'CHALLA: Clint! Give it to me.
 
-[Clint gives the Gauntlet to T'Challa, and he runs towards the van while fighting T
+[Clint gives the Gauntlet to T'Challa, and he runs towards the van while fighting Th
