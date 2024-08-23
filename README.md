@@ -1952,4 +1952,4 @@ RHODEY: Me either. But we work with what we got, right?
 
 [They just both look at each other solemnly.]
 
-RHODEY: Sync up. [They both 
+RHODEY: Sync up. [They both s
