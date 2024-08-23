@@ -3103,4 +3103,4 @@ BRUCE BANNER: Ready, Cap? Alright. We'll meet you back here, okay?
 
 STEVE ROGERS: You bet.
 
-BRUCE BANNER: Going
+BRUCE BANNER: Going 
