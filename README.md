@@ -3123,4 +3123,4 @@ BRUCE BANNER: I'm trying.
 
 Sam Wilson: Get him the hell back!
 
-BRUCE BANNER: Hey, I s
+BRUCE BANNER: Hey, I sa
