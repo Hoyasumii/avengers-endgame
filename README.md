@@ -2788,4 +2788,4 @@ CLINT BARTON: Cap, what do you want me to do with this damn thing?
 
 STEVE ROGERS: Get those stones as far away as possible!
 
-BRUCE BANNER: No! We need to get them back where t
+BRUCE BANNER: No! We need to get them back where th
