@@ -1944,4 +1944,4 @@ RHODEY: When you break into a place called the temple of the Power Stone, There'
 
 RHODEY: Okay. All right. Go ahead.
 
-[Nebula forces her hand inside the force field protecting The Orb while it melts away the exterior plating on her arm. She successfully retrieves The Orb and hands it to Rhodey all the
+[Nebula forces her hand inside the force field protecting The Orb while it melts away the exterior plating on her arm. She successfully retrieves The Orb and hands it to Rhodey all the 
