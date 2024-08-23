@@ -282,4 +282,4 @@ THANOS: Gone. Reduced to atoms.
 
 BRUCE BANNER: You used them two days ago!
 
-THANOS: I used the stones to destroy the stones. It nearly killed me. But the work is done. It always
+THANOS: I used the stones to destroy the stones. It nearly killed me. But the work is done. It always 
