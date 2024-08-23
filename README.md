@@ -1150,4 +1150,4 @@ CLINT BARTON: Bingo.
 
 NEBULA: That's not how it works.
 
-CLINT BARTON: Well, that's wh
+CLINT BARTON: Well, that's wha
