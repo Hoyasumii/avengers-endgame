@@ -2442,4 +2442,4 @@ BRUCE BANNER: She's not coming back. We have to make it worth it. We have to.
 
 STEVE ROGERS: We will.
 
-[Cut to inside the Avenger's Lab. Tony carefully plac
+[Cut to inside the Avenger's Lab. Tony carefully place
