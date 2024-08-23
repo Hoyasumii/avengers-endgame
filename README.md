@@ -2772,4 +2772,4 @@ PETER QUILL: Ow.
 
 GAMORA (2014): [Kicks Peter in the nuts, slightly hurting Peter] Don't– touch– [Kicks him again, this time harder] me!
 
-[Pe
+[Pet
