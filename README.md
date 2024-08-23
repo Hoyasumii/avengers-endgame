@@ -812,4 +812,4 @@ TEEN SCOTT LANG: Uh, guys? This...this doesn't feel right.
 
 STEVE ROGERS: What is this?
 
-BRUCE BANNER: What's g
+BRUCE BANNER: What's go
