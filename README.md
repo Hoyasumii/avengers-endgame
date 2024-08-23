@@ -728,4 +728,4 @@ MORGAN STARK: Tell me a story.
 
 TONY STARK: A story... Once upon a time, Maguna went to bed. The end.
 
-MORGAN STARK: 
+MORGAN STARK: [
