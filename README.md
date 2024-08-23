@@ -634,4 +634,4 @@ BRUCE BANNER: Yes?
 
 GIRL: Can we get a photo?
 
-BRUCE BANNER: 100%, little person. Come on, step up. [Hold
+BRUCE BANNER: 100%, little person. Come on, step up. [Holdi
