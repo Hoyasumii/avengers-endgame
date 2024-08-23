@@ -762,4 +762,4 @@ PEPPER POTTS: We got really lucky.
 
 TONY STARK: Yeah, I know.
 
-PEPPER POTTS: A lot of people di
+PEPPER POTTS: A lot of people did
