@@ -2568,4 +2568,4 @@ SCOTT LANG: Wait! I'm here! I'm here, can you hear me?
 
 CLINT BARTON: Cap?
 
-[Clint finds the gauntlet is with him but senses he's not alone down there. He shoots an arrow with light towards the dark tunnel and finds hordes of Outr
+[Clint finds the gauntlet is with him but senses he's not alone down there. He shoots an arrow with light towards the dark tunnel and finds hordes of Outri
