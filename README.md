@@ -1412,4 +1412,4 @@ RHODEY: You guys watch each other's six.
 
 CLINT BARTON: Yeah.
 
-[They wa
+[They wal
