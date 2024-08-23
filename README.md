@@ -2126,4 +2126,4 @@ ELEVATOR LADY: You're new here?
 
 STEVE ROGERS: Not exactly.
 
-[Cut to T
+[Cut to To
