@@ -452,4 +452,4 @@ NATASHA ROMANOFF: In the Hudson?
 
 STEVE ROGERS: There's fewer ships, cleaner water.
 
-NATASHA ROMANOFF: You know, if you're about to tel
+NATASHA ROMANOFF: You know, if you're about to tell
