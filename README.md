@@ -148,4 +148,4 @@ TONY STARK: [Referring to Carol] She's great, by the way.
 
 RHODEY: Sit down. Sit.
 
-TONY STARK: We need you. You're new blood. Bunch of tired old mules! [Tony walks righ
+TONY STARK: We need you. You're new blood. Bunch of tired old mules! [Tony walks right
