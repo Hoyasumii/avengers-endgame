@@ -204,4 +204,4 @@ CAROL DANVERS: So let's get him... Use them to bring everyone back.
 
 RHODEY: Just like that?
 
-STEVE ROGERS: Yeah, just 
+STEVE ROGERS: Yeah, just l
