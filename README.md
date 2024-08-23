@@ -1054,4 +1054,4 @@ THOR: [pauses, but doesn't look up then puts the bottle down] What kind?
 
 THUG #1: あいつだ! アキヒコさんを！(Romanized: Aitsu da! Akihiko-san wo!) (Translated: It's him! He's after Akihiko!)
 
-[Both thugs fire their SMGs as both got slain by a shuriken. A yakuza member wielding a katana charges at him in the stairs, but is immediately overthrown and slain by the Ronin. Ronin then fights another sword-wielding thug, which is thrown outside the glass, killing h
+[Both thugs fire their SMGs as both got slain by a shuriken. A yakuza member wielding a katana charges at him in the stairs, but is immediately overthrown and slain by the Ronin. Ronin then fights another sword-wielding thug, which is thrown outside the glass, killing hi
