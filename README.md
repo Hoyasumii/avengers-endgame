@@ -1714,4 +1714,4 @@ STEVE ROGERS (2012): What?
 
 STEVE ROGERS: That is America's ass.
 
-[Scene cuts back to Bruce and The Ancient One (2012). As Hulk is lying down on a beach chair who looks like he's sleeping with a hat on, Bruce Banner tries reasoning with the Ancient One to let him hav
+[Scene cuts back to Bruce and The Ancient One (2012). As Hulk is lying down on a beach chair who looks like he's sleeping with a hat on, Bruce Banner tries reasoning with the Ancient One to let him have
