@@ -2288,4 +2288,4 @@ NEBULA: You can stop this. You know you want to. Did you see what happens in the
 
 NEBULA (2014): That's enough. [kicks Present Nebula to the wall and pulls out her Electric Knife.] You disgust me. But that doesn't mean you're useless.
 
-[Nebula (2014) steals the golden plate on the side of Present Nebula´s face and wears it herself. Then she walks up to Thanos, gives him a Pym Particle and shows him her n
+[Nebula (2014) steals the golden plate on the side of Present Nebula´s face and wears it herself. Then she walks up to Thanos, gives him a Pym Particle and shows him her ne
