@@ -174,4 +174,4 @@ NATASHA ROMANOFF: Where are you going?
 
 CAROL DANVERS: To kill Thanos.
 
-[Steve and Natasha share a look befo
+[Steve and Natasha share a look befor
