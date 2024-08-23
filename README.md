@@ -272,4 +272,4 @@ CAROL DANVERS: Answer the question!
 
 THANOS: The universe required correction. After that, the stones served no purpose, beyond temptation.
 
-BRUCE BANNER: You mur
+BRUCE BANNER: You murd
