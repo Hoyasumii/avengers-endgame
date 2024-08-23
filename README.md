@@ -830,4 +830,4 @@ OLD SCOTT LANG: Ow! My back!
 
 STEVE ROGERS: What is this?
 
-BRUCE BANNER: Can 
+BRUCE BANNER: Can I
