@@ -11,4 +11,5 @@ with open(sys.argv[1], "r", encoding="utf-8") as doc:
       testFile.close()
       os.system("git add .")
       os.system(f'git commit -m "A Letra {letter} foi adicionada"')
-      os.system("git push")
+
+os.system("git push")
