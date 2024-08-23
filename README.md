@@ -1766,4 +1766,4 @@ THANOS (2014): [To Ebony Maw] Run diagnostics. Show me her memory file.
 
 EBONY MAW (2014): Sire, the file appears entangled. It was a memory, but not hers. There's another consciousness sharing her network...another Nebula.
 
-THANOS (2014): 
+THANOS (2014): I
