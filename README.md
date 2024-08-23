@@ -2372,4 +2372,4 @@ CLINT BARTON: You're a pain in my ass, you know that?
 
 CLINT BARTON: Okay. You win.
 
-[Clint smiles and knocks Natasha to the groun
+[Clint smiles and knocks Natasha to the ground
