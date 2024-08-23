@@ -1762,4 +1762,4 @@ THE ANCIENT ONE (2012): I'm counting on you, Bruce. We all are.
 
 [Cut to Thanos (2014), Nebula (2014), Gamora (2014) and Ebony Maw (2014) on the Sanctuary II.]
 
-THANOS (2014): [
+THANOS (2014): [T
