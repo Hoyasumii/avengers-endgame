@@ -3157,4 +3157,4 @@ Sam Wilson: Only thing bumming me out is the fact I have to live in a world with
 
 [Sam look over to Bucky, who nods, and Sam holds Steve's shield.]
 
-(
+(O
