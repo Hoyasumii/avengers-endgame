@@ -1832,4 +1832,4 @@ THOR: Oh, my eye. That's... you remember the Battle of Haroquin? When I got hit 
 
 FRIGGA (2013): You're not the Thor I know at all, are you?
 
-THOR: [P
+THOR: [Pr
