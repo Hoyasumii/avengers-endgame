@@ -1950,4 +1950,4 @@ NEBULA: I wasn't always like this.
 
 RHODEY: Me either. But we work with what we got, right?
 
-[They just both look at each other solemn
+[They just both look at each other solemnl
