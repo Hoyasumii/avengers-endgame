@@ -1426,4 +1426,4 @@ RHODEY: Okay, so, uhh... We just wait around for this Quill guy to show up and t
 
 NEBULA: [Looking around] Let's take cover. We're not the only ones in 2014 looking for the stones.
 
-RHODEY: Wait a minute, what are you talking about right now? Who else is looking for these stone
+RHODEY: Wait a minute, what are you talking about right now? Who else is looking for these stones
