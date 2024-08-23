@@ -1516,4 +1516,4 @@ TONY STARK (2012): STRIKE team's coming to secure it.
 
 SITWELL (2012): We can take that [Taking Loki's Scepter from 2012 Natasha] off your hands.
 
-NATASHA ROMANOFF (2012): By all means. Careful with that
+NATASHA ROMANOFF (2012): By all means. Careful with that 
