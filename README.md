@@ -2608,4 +2608,4 @@ NEBULA: I tried to kill you. Several times.
 
 NEBULA: But eventually, we become friends. We become sisters.
 
-[Gamora (2014) 
+[Gamora (2014) h
