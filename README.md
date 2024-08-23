@@ -2416,4 +2416,4 @@ TONY STARK: I just asked him a question–
 
 THOR: Yeah, you're acting like she's dead. Why are we acting like she's dead? We have the stones, right? As long as we have the stones, Cap, we can bring her back, isn't that right? [GROWLING.] So stop this shit. We're the Avengers, get it together.
 
-CLINT BARTON: We can'
+CLINT BARTON: We can't
