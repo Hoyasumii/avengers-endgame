@@ -572,4 +572,4 @@ TONY STARK: Gotta say, sometimes I miss that giddy optimism. However, high hopes
 
 SCOTT LANG: Not if we strictly follow the rules of time travel. That means no talking to our past selves, no betting on sporting events -
 
-TONY STARK: I'm gonna stop you right there, Scott. Are you seriously telling me that yo
+TONY STARK: I'm gonna stop you right there, Scott. Are you seriously telling me that you
