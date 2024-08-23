@@ -3121,4 +3121,4 @@ Sam Wilson: Well, get him back.
 
 BRUCE BANNER: I'm trying.
 
-Sam Wilson: Get him the 
+Sam Wilson: Get him the h
