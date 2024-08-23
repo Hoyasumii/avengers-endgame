@@ -716,4 +716,4 @@ MORGAN STARK: Why you up?
 
 TONY STARK: 'Cause I got some important shit going on here. [Morgan gives Tony a taste of the incredulous] What do you think? No, I got something on my mind. I got something on my mind.
 
-MORGAN STARK: Was 
+MORGAN STARK: Was i
