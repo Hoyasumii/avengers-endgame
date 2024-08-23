@@ -2790,4 +2790,4 @@ STEVE ROGERS: Get those stones as far away as possible!
 
 BRUCE BANNER: No! We need to get them back where they came from.
 
-TONY STARK: No way to get the
+TONY STARK: No way to get them
