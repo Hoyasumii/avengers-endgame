@@ -558,4 +558,4 @@ TONY STARK: No, you accidentally survived. It's a billion to one cosmic fluke. A
 
 SCOTT LANG: (Trying to hide his pride) A time heist?
 
-TONY STARK: Yeah, a time heist. Of course, why didn't we think of this before? Oh, because it's laughable? Because 
+TONY STARK: Yeah, a time heist. Of course, why didn't we think of this before? Oh, because it's laughable? Because i
