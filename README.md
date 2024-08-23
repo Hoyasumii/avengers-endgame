@@ -980,4 +980,4 @@ KORG: Yeah, NoobMaster69 called me a dickhead.
 
 THOR: NoobMaster. Hey, it's Thor again. You know, the God of Thunder? Listen, buddy. If you don't log off this game immediately, I'm gonna fly over to your house, come down to that basement you're hiding in, rip off your arms and SHOVE THEM UP YOUR BUTT! Oh, that's right, go cry to your father, you little weasel!
 
-KORG: [Thor bring
+KORG: [Thor brings
