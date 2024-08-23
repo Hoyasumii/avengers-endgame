@@ -1760,4 +1760,4 @@ BRUCE BANNER: Thank you.
 
 THE ANCIENT ONE (2012): I'm counting on you, Bruce. We all are.
 
-[Cut to Thanos (2014), Nebula (2014), Gamora (2014) and
+[Cut to Thanos (2014), Nebula (2014), Gamora (2014) and 
