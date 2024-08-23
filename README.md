@@ -1168,4 +1168,4 @@ SCOTT LANG: Die Hard? No, it's not one...
 
 RHODEY: This is known.
 
-BRUCE BANNER: I don't kno
+BRUCE BANNER: I don't know
