@@ -308,4 +308,4 @@ YEARS
 
 [pause]
 
-LAT
+LATE
