@@ -2688,4 +2688,4 @@ NEBULA (2014): I am this.
 
 GAMORA (2014): No, you're not.
 
-NEBULA: You've seen what we bec
+NEBULA: You've seen what we beco
