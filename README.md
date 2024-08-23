@@ -1306,4 +1306,4 @@ NATASHA ROMANOFF: [Smiling excitedly] See you in a minute.
 
 STEVE ROGERS: All right, we all have our assignments. Two Stones uptown, one Stone, down. Stay low. Keep an eye on the clock.
 
-[2012 Hulk passes by them, sm
+[2012 Hulk passes by them, sma
