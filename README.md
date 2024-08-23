@@ -1436,4 +1436,4 @@ RHODEY: And you? Where are you right now?
 
 GAMORA (2014): [Helping Nebula up] You're welcome.
 
-NEBULA (2014): I didn
+NEBULA (2014): I didn'
