@@ -958,4 +958,4 @@ THOR: The Cinemax ran out about two weeks ago, and the sports were all kind of f
 
 BRUCE BANNER: Thor?
 
-THOR: [He notices Bruce and Rocket standing there. He cracks
+THOR: [He notices Bruce and Rocket standing there. He cracks 
