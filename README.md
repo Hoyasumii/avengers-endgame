@@ -379,3 +379,4 @@ NEBULA: It was an infectious garbage scowl.
 ROCKET: So, thanks for the hot tip. [turns to Danvers and replies back with a smirk]
 
 CAROL DANVERS: Well, you were closer.
+
