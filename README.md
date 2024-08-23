@@ -2336,4 +2336,4 @@ NATASHA ROMANOFF: I didn't. Thanos left here with the stone without his daughter
 
 CLINT BARTON: Yeah.
 
-NAT
+NATA
