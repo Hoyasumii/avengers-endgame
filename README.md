@@ -1894,4 +1894,4 @@ THOR: I love you, Mom.
 
 FRIGGA (2013): I love you. And eat a salad.
 
-ROCKET: Come on. We got
+ROCKET: Come on. We gott
