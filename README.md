@@ -697,3 +697,4 @@ F.R.I.D.A.Y: Just a moment.
 TONY STARK: And don't worry if it doesn't pan out. I'm just kinda -
 
 F.R.I.D.A.Y: Model rendered.
+
