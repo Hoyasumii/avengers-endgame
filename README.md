@@ -2250,4 +2250,4 @@ HOWARD STARK: Let me ask you a question. When your kid was born– were you nerv
 
 TONY STARK: Wildly. Yeah.
 
-HOWARD STARK: Did you fee
+HOWARD STARK: Did you feel
