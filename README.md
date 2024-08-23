@@ -2768,4 +2768,4 @@ PETER QUILL: Gamora? [Peter slowly approaches Gamora (2014)] I thought I lost yo
 
 [Peter touches Gamora's hair, not knowing she isn't present Gamora. In response, Gamora (2014) grabs Peter's hand firmly off her hair.]
 
-PETER
+PETER 
