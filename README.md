@@ -2588,4 +2588,4 @@ NEBULA (2014): Thank you, Father. They suspected nothing.
 
 [Thanos (2014) plants his double-bladed sword on the ground, takes off his helmet and places on top of the sword's edge.]
 
-THANOS (2014): The arrogant nev
+THANOS (2014): The arrogant neve
