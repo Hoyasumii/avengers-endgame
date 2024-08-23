@@ -968,4 +968,4 @@ THOR: Hulk, you know my friends, Miek, Korg, right?
 
 KORG: Hey boys!
 
-BRUCE BANNER: He
+BRUCE BANNER: Hey
