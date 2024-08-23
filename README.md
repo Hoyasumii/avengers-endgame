@@ -2466,4 +2466,4 @@ THOR: No, no, sitting here staring at that thing is not gonna bring everybody ba
 
 TONY STARK: It's not about that–
 
-THOR: (hushes everyone up) I
+THOR: (hushes everyone up) It
