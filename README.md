@@ -512,4 +512,4 @@ SCOTT LANG: No. No, of course not. No, not a time machine. It's more like a... Y
 
 NATASHA ROMANOFF: Scott, I get e-mails from a raccoon, so nothing sounds crazy anymore.
 
-SCOTT LANG: So who do we
+SCOTT LANG: So who do we 
