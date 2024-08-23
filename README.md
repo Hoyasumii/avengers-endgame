@@ -794,4 +794,4 @@ BRUCE BANNER: Just... It was a bad joke.
 
 NATASHA ROMANOFF: You were kidding, right?
 
-BRUCE BANNER: [Whispering to Nat] I have no idea. We're talking about time travel here. Either it's all a joke, or none of it is. [Loudly and gives Scott a thumbs up] We're good! Get your helmet on, Scott. I'm 
+BRUCE BANNER: [Whispering to Nat] I have no idea. We're talking about time travel here. Either it's all a joke, or none of it is. [Loudly and gives Scott a thumbs up] We're good! Get your helmet on, Scott. I'm g
