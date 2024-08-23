@@ -1246,4 +1246,4 @@ NEBULA: Thanos found the Soul Stone on Vormir.
 
 NATASHA ROMANOFF: [In a business-like tone] What is Vormir?
 
-NEBULA: A dominion of death, at the very center of Celestial existence. It's where... T
+NEBULA: A dominion of death, at the very center of Celestial existence. It's where... Th
