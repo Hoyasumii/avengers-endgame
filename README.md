@@ -32,4 +32,4 @@ CLINT BARTON: Mind your elbow. [Lila releases the arrow and it hits the target d
 
 LAURA BARTON: Hey guys! Enough practice, soup's on!
 
-CLINT BARTON: Alright, we'r
+CLINT BARTON: Alright, we're
