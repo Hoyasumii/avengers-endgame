@@ -2518,4 +2518,4 @@ TONY STARK: Talk to me, Banner.
 
 BRUCE BANNER: I'm okay. I'm okay.
 
-[Thor gives a dou
+[Thor gives a doub
