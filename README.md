@@ -1062,4 +1062,4 @@ RONIN: [As he draws out his katana and reversibly wields it.]地球の半分 サ
 
 [Both sides engaged in combat as Ronin pierces his stomach, but doing only minor damage to him.]
 
-RONIN: [Also in Japan
+RONIN: [Also in Japane
