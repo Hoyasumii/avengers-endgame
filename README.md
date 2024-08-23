@@ -294,4 +294,4 @@ THANOS: Ah, thank you, daughter. [Nebula looks down, a little uncomfortable.] Pe
 
 ROCKET: What... What did you do?
 
-[Thor looks broken, realizing
+[Thor looks broken, realizing 
