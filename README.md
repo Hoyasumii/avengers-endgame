@@ -280,4 +280,4 @@ NATASHA ROMANONFF: Where are the Stones?
 
 THANOS: Gone. Reduced to atoms.
 
-BRUCE 
+BRUCE B
