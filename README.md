@@ -946,4 +946,4 @@ VALKYRIE: Yeah.
 
 [Cut to Rocket opening a door, and him and Bruce walking through it.]
 
-ROCKET: [Grimacing at the smell] What the... 
+ROCKET: [Grimacing at the smell] What the... W
