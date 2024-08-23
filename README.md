@@ -2911,4 +2911,4 @@ OKOYE: She's got help.
 
 THANOS (2014): I am– inevitable.
 
-[Thanos snaps his fingers, but nothing happens except a metallic "clink." He sees the Infinity Stones are missing. Tony has the stones on his own gauntlet, the gamma radiation coursing thro
+[Thanos snaps his fingers, but nothing happens except a metallic "clink." He sees the Infinity Stones are missing. Tony has the stones on his own gauntlet, the gamma radiation coursing throu
