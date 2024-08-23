@@ -270,4 +270,4 @@ STEVE ROGERS: Where are they?
 
 CAROL DANVERS: Answer the question!
 
-THANOS: The universe required c
+THANOS: The universe required co
