@@ -422,4 +422,4 @@ RHODEY: Mexico. The Federales found a room full of bodies. Looks like a bunch of
 
 NATASHA ROMANOFF: It's probably a rival gang.
 
-RHODEY: Except it isn't. (Nat realizes
+RHODEY: Except it isn't. (Nat realizes 
