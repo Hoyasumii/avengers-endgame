@@ -851,3 +851,4 @@ STEVE ROGERS: Bring Scott back!
 BRUCE BANNER: [motioning to Nat] When I say kill the power, kill the power.
 
 NATASHA ROMANOFF: Oh my god. [rapidly walk near to the generator]
+
