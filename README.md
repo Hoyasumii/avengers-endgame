@@ -178,4 +178,4 @@ CAROL DANVERS: To kill Thanos.
 
 NATASHA ROMANOFF: Hey, you know, we usually work as a team here, and between you and I, morale's a little fragile.
 
-STEVE ROGERS: We realize up there is more your territory, but this is our fi
+STEVE ROGERS: We realize up there is more your territory, but this is our fig
