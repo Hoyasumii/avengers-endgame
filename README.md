@@ -1192,4 +1192,4 @@ LILA BARTON: Yeah, Dad? [She looks around] Dad?
 
 [Cut to the Avengers Compound, we see Clint rematerialise on the glass platform, breathing heavily and sitting on the platform.]
 
-NATASHA ROMANOFF: Hey, hey. Lo
+NATASHA ROMANOFF: Hey, hey. Loo
