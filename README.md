@@ -1726,4 +1726,4 @@ BRUCE BANNER: With all due respect, I'm not sure the science really supports tha
 
 THE ANCIENT ONE (2012): The Infinity Stones create what you experience as the flow of time. Remove one stone and that flow splits. [She flicks the Time Stone projection away and Shows black stream indicating a point of divergence] Now, this may benefit your reality, but my new one…not so much. In this new branched Reality, without our chief weapon against the forces of darkness, our world will be overrun. Millions will suffer. So, tell me, Doctor, can your science prevent all that?
 
-BRUCE BANNER: No, but we can erase it. Because once we are do
+BRUCE BANNER: No, but we can erase it. Because once we are don
