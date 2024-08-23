@@ -1386,4 +1386,4 @@ ROCKET: Alright, Heartbreaker. She's alone. This is our shot. [He turns back to 
 
 [Cut to Morag in 2014, where we see Rhodey getting off the Benatar as it lands.]
 
-RHODEY: Alright. Bring it down low. Right on that line. T
+RHODEY: Alright. Bring it down low. Right on that line. Th
