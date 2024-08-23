@@ -1060,4 +1060,4 @@ AKIHIKO: てめえ なぜこんなことをする? 俺たちてめえになに�
 
 RONIN: [As he draws out his katana and reversibly wields it.]地球の半分 サノスにやられた... お前はなぜ無事なの…(Romanized: Chikyū no hanbun sanosu ni yarareta... Omae wa naze buji nano...) (English: You survived... Half of the planet didn't. They got Thanos... you get me.)
 
-[Both sides engaged in combat as Ronin
+[Both sides engaged in combat as Ronin 
