@@ -1506,4 +1506,4 @@ STEVE ROGERS: No one asked you to look, Tony.
 
 TONY STARK: [whispers] It's ridiculous.
 
-SCOTT LANG:
+SCOTT LANG: 
