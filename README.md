@@ -400,4 +400,4 @@ CAROL DANVERS: [irritated] Listen fur-face, I'm covering a lot of territory. The
 
 ROCKET: [murmurs to himself] All right, all right, that's a good point. That's a good point.
 
-CAROL DANVER
+CAROL DANVERS
