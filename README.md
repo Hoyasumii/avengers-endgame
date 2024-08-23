@@ -2168,4 +2168,4 @@ TONY STARK: Yeah. That would be swell.
 
 HOWARD STARK: That way.
 
-TONY STARK: Oka
+TONY STARK: Okay
