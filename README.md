@@ -2158,4 +2158,4 @@ HOWARD STARK: Shake it, don't pull it.
 
 TONY STARK: Yeah–
 
-HOWARD STARK: You look a little green around the gills the
+HOWARD STARK: You look a little green around the gills ther
