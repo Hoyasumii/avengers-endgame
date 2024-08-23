@@ -1050,4 +1050,4 @@ THOR: [pauses, but doesn't look up then puts the bottle down] What kind?
 
 [SCREEN TITLE: TOKYO]
 
-[After seeing a Quinjet fl
+[After seeing a Quinjet flo
