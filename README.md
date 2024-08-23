@@ -8,4 +8,4 @@ CLINT BARTON: Alright. Ready your fingers.
 
 COOPER BARTON: Nice.
 
-LAURA BARTON: Nice throw, kidd
+LAURA BARTON: Nice throw, kiddo
