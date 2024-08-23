@@ -3055,4 +3055,4 @@ DRAX: Yeah, knives.
 
 GROOT: I am Groot.
 
-[Both Th
+[Both Tho
