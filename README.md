@@ -902,4 +902,4 @@ TONY STARK: Will you keep that a little quiet? Didn't bring one for the whole te
 
 STEVE ROGERS: We're working on that right now.
 
-[Cut to the Benatar landing in the yard of the Avenger's Compound. Scott is sitting having a Taco and some Nachos at a bench, and everything falls out of the taco as the Benatar lands. N
+[Cut to the Benatar landing in the yard of the Avenger's Compound. Scott is sitting having a Taco and some Nachos at a bench, and everything falls out of the taco as the Benatar lands. Ne
