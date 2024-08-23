@@ -1174,4 +1174,4 @@ NEBULA: Exactly.
 
 SCOTT LANG: So... Back To The Future's a bunch of bullshit?
 
-BRUCE BANNER: [Turning to Clint] Alright, Clint. We're going in 3
+BRUCE BANNER: [Turning to Clint] Alright, Clint. We're going in 3.
