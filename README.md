@@ -352,4 +352,4 @@ Scott Lang: No. Please. Please, please. [moves on to check the other side of the
 
 [The camera keeps panning and switching as Lang checks the rest of engraved stones if her daughter's name was in one.]
 
-Scott Lang: [in a mantra-like] Please, please, please, please... No, Cassie. [Lang looks at the engraved stone in sh
+Scott Lang: [in a mantra-like] Please, please, please, please... No, Cassie. [Lang looks at the engraved stone in sho
