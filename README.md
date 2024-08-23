@@ -1442,4 +1442,4 @@ GAMORA (2014): And yet, you always need it. [Nebula (2014) laughs and Gamora's h
 
 NEBULA (2014): Why?
 
-GAMORA (2014): He's found an Inf
+GAMORA (2014): He's found an Infi
