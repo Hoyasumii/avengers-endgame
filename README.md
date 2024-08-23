@@ -422,4 +422,4 @@ RHODEY: Mexico. The Federales found a room full of bodies. Looks like a bunch of
 
 NATASHA ROMANOFF: It's probably a rival gang.
 
-RHODEY: Except it isn't. (Nat realizes something.) It's definitely Barton. What he's done here, what he's been doing for the last few years... I mean, the scene that he left... (Nat starts to show signs of sadness as she 
+RHODEY: Except it isn't. (Nat realizes something.) It's definitely Barton. What he's done here, what he's been doing for the last few years... I mean, the scene that he left... (Nat starts to show signs of sadness as she g
