@@ -2672,4 +2672,4 @@ NEBULA (2014): I have the stones.
 
 CLINT BARTON: What?!
 
-[Clint tries to get up but Nebula (2
+[Clint tries to get up but Nebula (20
