@@ -2970,3 +2970,4 @@ WANDA MAXIMOFF: She knows– They both do.
 [scene cuts to Happy and Morgan.]
 
 HAPPY: How you doing, Squirt?
+
