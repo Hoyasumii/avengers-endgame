@@ -564,4 +564,4 @@ SCOTT LANG: The Stones are in the past. We can go back and get them.
 
 NATASHA ROMANOFF: We can snap our own fingers. We can bring everyone back.
 
-TONY STARK: Or screw it up worse than he already has, ri
+TONY STARK: Or screw it up worse than he already has, rig
