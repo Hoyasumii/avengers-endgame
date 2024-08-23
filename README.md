@@ -2652,4 +2652,4 @@ STEVE ROGERS: Born out of blood.
 
 THANOS (2014): They'll never know it. Because you won't be alive to tell them.
 
-[The fighting starts, and Th
+[The fighting starts, and Tho
