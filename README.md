@@ -1038,4 +1038,4 @@ KORG: Nah, all good here, mate.
 
 [Cuts back to Thor]
 
-THOR: So, whatever it is that you're offering, we're not into it, don't care, couldn't care le
+THOR: So, whatever it is that you're offering, we're not into it, don't care, couldn't care les
