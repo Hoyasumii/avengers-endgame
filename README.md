@@ -2124,4 +2124,4 @@ STEVE ROGERS: [Waiting for another floor] Good luck on your project, doctor.
 
 ELEVATOR LADY: You're new here?
 
-STEVE ROGERS: Not ex
+STEVE ROGERS: Not exa
