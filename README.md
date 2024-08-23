@@ -1816,4 +1816,4 @@ FRIGGA (2013): Aah!!!
 
 THOR: OH, God!
 
-FRIGGA (2013): You're better off leaving the sneaking to your
+FRIGGA (2013): You're better off leaving the sneaking to your 
