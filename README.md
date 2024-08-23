@@ -908,4 +908,4 @@ ROCKET: Hey, humie! Where's Big Green?
 
 SCOTT LANG: Uh, Kitchen, I think. [To himself as he sees Nebula] That's awesome.
 
-NEBULA: [into an earpiece] Rhodey, careful on re-entry. The
+NEBULA: [into an earpiece] Rhodey, careful on re-entry. Ther
