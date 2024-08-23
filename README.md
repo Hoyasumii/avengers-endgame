@@ -270,4 +270,4 @@ STEVE ROGERS: Where are they?
 
 CAROL DANVERS: Answer the question!
 
-THANOS: The universe required correction. After that, the stones served no purpose, beyond
+THANOS: The universe required correction. After that, the stones served no purpose, beyond 
