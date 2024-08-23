@@ -1886,4 +1886,4 @@ FRIGGA (2013): It's none of my business. [does she know?]
 
 ROCKET: Hey. You must be Mom. I got the thing. Come on, we got to move.
 
-THOR: I wish we had more time
+THOR: I wish we had more time.
