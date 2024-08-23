@@ -2512,4 +2512,4 @@ BRUCE BANNER: Everybody comes home.
 
 THOR: Take it off! Take it off!
 
-STE
+STEV
