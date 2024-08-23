@@ -1480,4 +1480,4 @@ NEBULA (Memory): Let's take cover. We're not the only ones in 2014 looking for t
 
 [Nebula (2014) shuts off the memory]
 
-GAMORA (201
+GAMORA (2014
