@@ -432,4 +432,4 @@ RHODEY: Nat...
 
 NATASHA ROMANOFF: Please.
 
-RHODEY: [reluctantly] Okay. [t
+RHODEY: [reluctantly] Okay. [th
