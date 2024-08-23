@@ -1118,4 +1118,4 @@ SCOTT LANG: No, you're being very Hulky.
 
 BRUCE BANNER: I'm being careful.
 
-SCOTT LANG: [Holding up the red glass bottle] These are Pym Particles, alright? And ever since Hank Pym got snapped out of existence, this is it. This is what we have. We're not making any
+SCOTT LANG: [Holding up the red glass bottle] These are Pym Particles, alright? And ever since Hank Pym got snapped out of existence, this is it. This is what we have. We're not making any 
