@@ -2664,4 +2664,4 @@ CLINT BARTON: Oh, hey– I know you.
 
 [Clint gives her the gauntlet. then she puts her hand on her earpiece]
 
-NE
+NEB
