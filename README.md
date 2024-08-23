@@ -1522,4 +1522,4 @@ CLINT BARTON (2012): Unless you want your mind erased. And not in a fun way.
 
 SITWELL (2012): We promise to be careful.
 
-SCOTT LANG: Wh
+SCOTT LANG: Who
