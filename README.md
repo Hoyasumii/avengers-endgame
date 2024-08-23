@@ -970,4 +970,4 @@ KORG: Hey boys!
 
 BRUCE BANNER: Hey guys, long time no see.
 
-KORG: Beer's 
+KORG: Beer's o
