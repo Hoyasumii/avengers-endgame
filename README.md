@@ -2762,4 +2762,4 @@ PETER PARKER: What are you doing?
 
 PETER PARKER: Oh, this is nice.
 
-[Cut to Star-Lord 
+[Cut to Star-Lord F
