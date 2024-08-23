@@ -1592,4 +1592,4 @@ STEVE ROGERS: That's okay. Trust me. [Steve leans over to Sitwell's ear.] Hail H
 
 HULK (2012): [Angrily] So many stairs!
 
-[Cut to the lobby. The 2012 Avengers start to make their way out of the build
+[Cut to the lobby. The 2012 Avengers start to make their way out of the buildi
