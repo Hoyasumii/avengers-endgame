@@ -2339,3 +2339,4 @@ CLINT BARTON: Yeah.
 NATASHA ROMANOFF: Whatever it takes.
 
 CLINT BARTON: Whatever it takes.
+
