@@ -490,4 +490,4 @@ SCOTT LANG: Have you ever studied Quantum Physics?
 
 NATASHA ROMANOFF: Only to make conversation.
 
-SCOTT LANG: Alright. So... five years ago, right before Thanos, I was in 
+SCOTT LANG: Alright. So... five years ago, right before Thanos, I was in a
