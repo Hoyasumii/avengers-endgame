@@ -3141,4 +3141,4 @@ Sam Wilson: Cap?
 
 Sam Wilson: So did something go wrong, or did something go right?
 
-(OLD) STEVE ROGERS: Well, after I put the stones back, I thought, maybe I'll try some of that life Tony was te
+(OLD) STEVE ROGERS: Well, after I put the stones back, I thought, maybe I'll try some of that life Tony was tel
