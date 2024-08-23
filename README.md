@@ -2494,4 +2494,4 @@ TONY STARK: Good to go, yeah?
 
 BRUCE BANNER: Let's do it.
 
-TONY STARK: You remember– everyone Thanos snap
+TONY STARK: You remember– everyone Thanos snapp
