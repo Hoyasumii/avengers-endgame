@@ -2328,4 +2328,4 @@ RED SKULL (2014): For one of you. For the other... In order to take the stone, y
 
 CLINT BARTON: How's it going? Jesus...Maybe he's making this shit up.
 
-NATASHA ROMANOFF: No. I don't think s
+NATASHA ROMANOFF: No. I don't think so
