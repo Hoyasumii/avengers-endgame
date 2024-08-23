@@ -1741,3 +1741,4 @@ BRUCE BANNER: Then, why the hell did Strange give it away?
 THE ANCIENT ONE (2012): [Surprised] What did you say?
 
 BRUCE BANNER: Strange, he gave it away. He gave it to Thanos.
+
