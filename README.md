@@ -1410,3 +1410,4 @@ RHODEY: You guys watch each other's six.
 
 [Clint and Nat look back and just smile.]
 
+C
