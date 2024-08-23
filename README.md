@@ -1134,4 +1134,4 @@ CLINT BARTON: I'm game. I'll do it.
 
 BRUCE BANNER: Clint, now you're gonna feel a little discombobulated from the chronoshift. Don't worry about it.
 
-[Clint taking position on t
+[Clint taking position on th
