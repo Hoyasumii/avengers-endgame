@@ -190,4 +190,4 @@ RHODEY: That's cute, Thanos has a retirement plan.
 
 STEVE ROGERS: So where is he?
 
-ROCKET: When Thanos snapped his fingers, Earth became ground zero for a power surge of ridiculously cosmic proportions. No one's ever seen anything like it... Until two days ago. [A hologram of a planet pops up, with a shockwave visibly traversing the surface.] On thi
+ROCKET: When Thanos snapped his fingers, Earth became ground zero for a power surge of ridiculously cosmic proportions. No one's ever seen anything like it... Until two days ago. [A hologram of a planet pops up, with a shockwave visibly traversing the surface.] On this
