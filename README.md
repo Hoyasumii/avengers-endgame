@@ -2845,4 +2845,4 @@ THANOS (2014): I don't even know who you are.
 
 WANDA MAXIMOFF: You will.
 
-[With her powers, Wa
+[With her powers, Wan
