@@ -24,4 +24,4 @@ CLINT BARTON: Uh, two mustard, please! Thanks, mama. [Camera switches to Laura f
 
 LAURA BARTON: Mayo or mustard?
 
-NATHANIEL BARTON: How about k
+NATHANIEL BARTON: How about ke
