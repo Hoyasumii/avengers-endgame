@@ -934,4 +934,4 @@ BRUCE BANNER: [motioning to Rocket] This is Rocket.
 
 ROCKET: How you doin'?
 
-VALKYRIE: [Eyeing Rocket] 
+VALKYRIE: [Eyeing Rocket] H
