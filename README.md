@@ -2955,4 +2955,4 @@ TONY STARK (voiceover): Everybody wants a happy ending, right? But it doesn't al
 
 TONY STARK (hologram): So I thought I'd probably better record a little greeting... In the case of an untimely death on my part. I mean, not that, death at any time isn't untimely. This time travel thing that we're gonna try and pull off tomorrow, it's– it's got me scratching my head about the survivability of it all. That's the thing. Then again, that's the hero gig. Part of the journey is the end. [Tony suddenly gets up walking towards his camera] What am I even trippin' for? Everything's gonna work out exactly the way it's supposed to. [He leans down and smiles. He is looking straight at Morgan] I love you 3,000.
 
-[The message ends
+[The message ends 
