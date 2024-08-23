@@ -2991,4 +2991,4 @@ VALKYRIE: So, when can we expect you back?
 
 THOR: Um– about that–
 
-VALKYRIE: Thor. Your peop
+VALKYRIE: Thor. Your peopl
