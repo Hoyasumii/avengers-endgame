@@ -2358,4 +2358,4 @@ CLINT BARTON: Oh, don't you get all decent on me now.
 
 NATASHA ROMANOFF: What, you think I wanna do it? I'm trying to save your life, you idiot.
 
-CLINT BARTON: Yeah, 
+CLINT BARTON: Yeah, w
