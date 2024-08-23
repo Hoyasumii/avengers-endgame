@@ -164,4 +164,4 @@ TONY STARK: I'm fine. I...
 
 [Cut to a shot of Tony on a bed, with Pepper at his side.]
 
-RHODEY: Bruce gave him a seda
+RHODEY: Bruce gave him a sedat
