@@ -2915,4 +2915,4 @@ THANOS (2014): I am– inevitable.
 
 TONY STARK: And I– am– Iron Man.
 
-[Tony snaps his fingers with a loud "CLANG" and a blinding flash of white. Rocket fires at a Leviathan and before it devours him, it crumbles into ash. The Black Order starts crumbling to ash. T'Challa and Quill look around in surprise; Steve looks on in exhaustion, knowing that they have won. Thanos, in horror, looks around and sees his entire army disintegrate. He looks at 
+[Tony snaps his fingers with a loud "CLANG" and a blinding flash of white. Rocket fires at a Leviathan and before it devours him, it crumbles into ash. The Black Order starts crumbling to ash. T'Challa and Quill look around in surprise; Steve looks on in exhaustion, knowing that they have won. Thanos, in horror, looks around and sees his entire army disintegrate. He looks at S
