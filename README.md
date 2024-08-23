@@ -1484,4 +1484,4 @@ GAMORA (2014): Who was that?
 
 NEBULA (2014): I don't know...My head is splitting...I don't know...
 
-GAMORA (2014): Her synaptic drive was probably damaged
+GAMORA (2014): Her synaptic drive was probably damaged 
