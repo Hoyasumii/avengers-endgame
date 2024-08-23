@@ -2911,4 +2911,4 @@ OKOYE: She's got help.
 
 THANOS (2014): I am– inevitable.
 
-[Thanos snaps his fingers, but nothing 
+[Thanos snaps his fingers, but nothing h
