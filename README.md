@@ -1212,4 +1212,4 @@ CLINT BARTON: Which means we have to pick our targets.
 
 TONY STARK: Correct.
 
-STEVE ROGERS: Let's start with the Aether. 
+STEVE ROGERS: Let's start with the Aether. T
