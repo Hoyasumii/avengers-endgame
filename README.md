@@ -2841,3 +2841,4 @@ T'CHALLA: Clint! Give it to me.
 
 WANDA MAXIMOFF: You took everything from me.
 
+T
