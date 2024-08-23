@@ -2464,4 +2464,4 @@ SCOTT LANG: We should at least discuss it.
 
 THOR: No, no, sitting here staring at that thing is not gonna bring everybody back. I'm the strongest Avenger, okay? So this responsibility falls upon me. It's my duty.
 
-TONY STARK: It's not
+TONY STARK: It's not 
