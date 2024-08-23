@@ -1354,4 +1354,4 @@ THOR: It's my Mother. She dies today.
 
 ROCKET: Oh. That's today?
 
-THOR: I can't do this. I can't do this. I sh
+THOR: I can't do this. I can't do this. I sho
