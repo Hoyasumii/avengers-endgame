@@ -1838,4 +1838,4 @@ FRIGGA (2013): The future hasn't been kind to you, has it?
 
 THOR: I didn't say I'm from the future.
 
-FRIGGA (2013): I was raised by witches, b
+FRIGGA (2013): I was raised by witches, bo
