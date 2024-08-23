@@ -2252,4 +2252,4 @@ TONY STARK: Wildly. Yeah.
 
 HOWARD STARK: Did you feel qualified? Like you had any idea how to successfully operate that thing?
 
-TONY STARK
+TONY STARK:
