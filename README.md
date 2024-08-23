@@ -2774,4 +2774,4 @@ GAMORA (2014): [Kicks Peter in the nuts, slightly hurting Peter] Don't– touch�
 
 [Peter falls from the pain, while Gamora (2014) wipes her face.]
 
-PETER QUILL: You missed the first time–
+PETER QUILL: You missed the first time– 
