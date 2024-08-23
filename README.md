@@ -2438,4 +2438,4 @@ CLINT BARTON: It was supposed to be me. She sacrificed her life for that goddamn
 
 [In a burst of anger, Bruce grabs a bench and hurls it clear across the lake. His anger spent, he turns to the others with a resigned look on his face]
 
-BRUCE BANNER: She's not coming back. We have to make it worth it. We h
+BRUCE BANNER: She's not coming back. We have to make it worth it. We ha
