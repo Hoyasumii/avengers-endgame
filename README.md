@@ -2014,4 +2014,4 @@ THANOS (2014): I know. And you'll have the chance to prove it.
 
 NEBULA: No! He knows! [Runs back to the ship and gets on the comms.] Barton? Barton, come in. Romanoff? Come in, we have a problem. Come on! Come in, we have a prob....Thanos knows. Thanos… He knows.
 
-[Nebula looks up in horror just to be abducted by the Sanctuary II. The scene cuts to Steve, who has just defeated himself, jumping down from a building with th
+[Nebula looks up in horror just to be abducted by the Sanctuary II. The scene cuts to Steve, who has just defeated himself, jumping down from a building with the
