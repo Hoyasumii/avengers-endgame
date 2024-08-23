@@ -2907,4 +2907,4 @@ WANDA MAXIMOFF: Don't worry.
 
 OKOYE: She's got help.
 
-[Pepper lands next to Okoye, followed by Mantis, Shuri, the Wasp, 2014 Gamora and Nebula. Thanos' army charges while the women help Carol Danvers go through the Outriders, Sakaarans and Chitauri. 2014 Gamora takes 
+[Pepper lands next to Okoye, followed by Mantis, Shuri, the Wasp, 2014 Gamora and Nebula. Thanos' army charges while the women help Carol Danvers go through the Outriders, Sakaarans and Chitauri. 2014 Gamora takes o
