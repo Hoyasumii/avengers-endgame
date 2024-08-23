@@ -2424,4 +2424,4 @@ CLINT BARTON: It can't be undone. It can't.
 
 [Thor dryly laughs.]
 
-THOR: I'm sorry. No 
+THOR: I'm sorry. No o
