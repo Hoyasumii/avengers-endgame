@@ -1384,4 +1384,4 @@ THOR: I can do this. I can do it, I can't do this.
 
 ROCKET: Alright, Heartbreaker. She's alone. This is our shot. [He turns back to where Thor was moments ago] Thor? Thor! Aaagh!!!
 
-[Cut to Morag in 2014, where we see Rhodey getting off the Benatar as it land
+[Cut to Morag in 2014, where we see Rhodey getting off the Benatar as it lands
