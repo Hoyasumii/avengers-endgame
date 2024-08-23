@@ -3169,4 +3169,4 @@ Sam Wilson: Thank you. I'll do my best.
 
 (OLD) STEVE ROGERS: That's why it's yours. [shakes Sam's hand]
 
-Sam Wilson: [seeing elderly Steve's wedding ring] You wanna tell m
+Sam Wilson: [seeing elderly Steve's wedding ring] You wanna tell me
