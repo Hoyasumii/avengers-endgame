@@ -1684,4 +1684,4 @@ TONY STARK: Oh, we blew it.
 
 THOR (2012): Loki!?
 
-[Cut to a walkway 
+[Cut to a walkway s
