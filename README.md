@@ -196,4 +196,4 @@ NEBULA: Thanos is there.
 
 NATASHA ROMANOFF: He used the stones again.
 
-BRUCE BANNER: Hey, hey, hey. We'd be going in short-handed, 
+BRUCE BANNER: Hey, hey, hey. We'd be going in short-handed, y
