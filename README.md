@@ -1084,4 +1084,4 @@ CLINT BARTON: You shouldn't be here.
 
 NATASHA ROMANOFF: Neither should you.
 
-CLINT BARTON: I've got a j
+CLINT BARTON: I've got a jo
