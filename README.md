@@ -2518,4 +2518,4 @@ TONY STARK: Talk to me, Banner.
 
 BRUCE BANNER: I'm okay. I'm okay.
 
-[Thor gives a double thumbs up, scene cuts to Nebula (2014) opening the Quantum Tunnel and brings the Sanctuary II to the present. Bruce screams, fighting through the 
+[Thor gives a double thumbs up, scene cuts to Nebula (2014) opening the Quantum Tunnel and brings the Sanctuary II to the present. Bruce screams, fighting through the i
