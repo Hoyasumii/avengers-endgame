@@ -1850,4 +1850,4 @@ THOR: I really need to talk to you.
 
 FRIGGA (2013): We can talk.
 
-[They both hug each othe
+[They both hug each other
