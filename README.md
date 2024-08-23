@@ -1058,4 +1058,4 @@ THUG #1: あいつだ! アキヒコさんを！(Romanized: Aitsu da! Akihiko-san
 
 AKIHIKO: てめえ なぜこんなことをする? 俺たちてめえになにもしてねぇだろ！(Romanized: Temē naze konna koto wo suru? Oretachi temē ni nani mo shitenē daro!) (English: Why are you doing this? We never did anything to you!)
 
-RONIN: [As he draws out his katana and reversibly wields it.]地球の半分 サノスにやられた... お前はなぜ無事なの…(Romanized: Chikyū no hanbun sanosu ni yarareta... Omae wa naze buji nano...) (English: You 
+RONIN: [As he draws out his katana and reversibly wields it.]地球の半分 サノスにやられた... お前はなぜ無事なの…(Romanized: Chikyū no hanbun sanosu ni yarareta... Omae wa naze buji nano...) (English: You s
