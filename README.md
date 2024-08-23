@@ -2106,4 +2106,4 @@ STEVE ROGERS: Here we go.
 
 [Cut to Steve and Tony in New Jersey, 1970]
 
-OUR WATCHER INFORMANT, STAN LEE (1922-2018 R.I.P): [Driving past Steve and Tony] Hey, man! Make l
+OUR WATCHER INFORMANT, STAN LEE (1922-2018 R.I.P): [Driving past Steve and Tony] Hey, man! Make lo
