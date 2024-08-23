@@ -2441,3 +2441,4 @@ CLINT BARTON: It was supposed to be me. She sacrificed her life for that goddamn
 BRUCE BANNER: She's not coming back. We have to make it worth it. We have to.
 
 STEVE ROGERS: We will.
+
