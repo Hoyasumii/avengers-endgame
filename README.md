@@ -60,4 +60,4 @@ TONY STARK: Fair game. Good sport. [Nebula shakes Tony's hand] Have fun?
 
 NEBULA: It was fun.
 
-[Camera switches to see Iron Man's busted helmet. Tony Stark's hand reaches forward to turn on the helmet. We pan out
+[Camera switches to see Iron Man's busted helmet. Tony Stark's hand reaches forward to turn on the helmet. We pan out 
