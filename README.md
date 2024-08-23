@@ -1335,3 +1335,4 @@ BRUCE BANNER: Ah, you're right, I don't. [He makes a grab at the Eye of Agamotto
 [The Ancient One (2012) pushes Bruce's astral form out of his body. Bruce who's is now in astral form looks at The Ancient One horrified.]
 
 THE ANCIENT ONE (2012): Let's start over, shall we?
+
