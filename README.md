@@ -2434,4 +2434,4 @@ CLINT BARTON: It can't– be undone. Or that's at least what the red floating gu
 
 [Clint's anger is quickly replaced with grief]
 
-CLINT BARTON: It was supposed to be me. She sacrificed her life for tha
+CLINT BARTON: It was supposed to be me. She sacrificed her life for that
