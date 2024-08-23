@@ -312,4 +312,4 @@ LATER
 
 [We see shots of New York City, seemingly abandoned. There are a lot of boats gathered around a dock, all abandoned. A baseball stadium comes into view, with no life present at all. The aftermath of the Decimation is evident, and Earth has not coped well.]
 
-[Cut to an abandoned cafe, with a poster on the wall labeled "WHERE DO WE GO, NOW THAT THEY'RE GONE?". A therapy session is taking place with Steve Rogers and seven other p
+[Cut to an abandoned cafe, with a poster on the wall labeled "WHERE DO WE GO, NOW THAT THEY'RE GONE?". A therapy session is taking place with Steve Rogers and seven other pe
