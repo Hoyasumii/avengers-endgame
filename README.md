@@ -2614,3 +2614,4 @@ GAMORA (2014): Come on. We can stop him.
 
 [Nebula takes it]
 
+[
