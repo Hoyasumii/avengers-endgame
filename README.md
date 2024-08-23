@@ -1254,4 +1254,4 @@ SCOTT LANG: Not it.
 
 [We see Tony and Nat lying on a table surrounded by papers, and Bruce lying down on the floor. The Time Stone pops up on the display.]
 
-NATASHA ROMANOFF: That Time Stone gu
+NATASHA ROMANOFF: That Time Stone guy
