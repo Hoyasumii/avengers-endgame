@@ -878,4 +878,4 @@ STEVE ROGERS: Among other things, yeah. What are you doing here?
 
 TONY STARK: [Ignoring Steve's question] That's the EPR Paradox. Instead of pushing Lang through time, you might've wound up pushing time through Lang. It's tricky. Dangerous. Somebody should've cautioned you against it.
 
-STEVE RO
+STEVE ROG
