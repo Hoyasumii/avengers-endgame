@@ -2456,4 +2456,4 @@ TONY Stark: Excuse me?
 
 THOR: It's okay.
 
-EVERYONE: (holding up T
+EVERYONE: (holding up Th
