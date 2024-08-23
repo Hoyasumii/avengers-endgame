@@ -12,4 +12,4 @@ LAURA BARTON: Nice throw, kiddo.
 
 COOPER BARTON: You go.
 
-LA
+LAU
