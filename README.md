@@ -1338,4 +1338,4 @@ THE ANCIENT ONE (2012): Let's start over, shall we?
 
 [Cut to an aerial shot of Asgard in 2013.Then to the prison in Asgard, where we see the Loki from The Dark World, sitting in his cell. Without him noticing, Rocket and Thor creep by, past the cell. They stop at a pillar a few metres away room of where Jane Foster is]
 
-THOR: Th
+THOR: Tha
