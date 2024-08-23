@@ -1588,4 +1588,4 @@ SITWELL (2012): I'm gonna have to call the Director.
 
 STEVE ROGERS: That's okay. Trust me. [Steve leans over to Sitwell's ear.] Hail Hydra.
 
-[Everyone is surprised, Steve w
+[Everyone is surprised, Steve wa
