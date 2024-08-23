@@ -2412,4 +2412,4 @@ STEVE ROGERS: Yeah. Us.
 
 THOR: (confused) What?
 
-TONY STARK: I just asked him a qu
+TONY STARK: I just asked him a que
