@@ -568,4 +568,4 @@ TONY STARK: Or screw it up worse than he already has, right?
 
 STEVE ROGERS: I don't believe we would.
 
-TONY STARK: Gotta say, somet
+TONY STARK: Gotta say, someti
