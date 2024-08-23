@@ -1344,4 +1344,4 @@ ROCKET: All right. Here's the deal, Tubby: You're gonna charm her and I'm gonna 
 
 THOR: I'll be right back, okay? There's a wine cellar, that's just down there. My father used to have this huge barrel of Aakonian ale. I'll see if the scullery has a couple of to-go cups...
 
-ROCKET: Hey! Hey
+ROCKET: Hey! Hey!
