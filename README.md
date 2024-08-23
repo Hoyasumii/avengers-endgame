@@ -2452,4 +2452,4 @@ ROCKET: All right. The glove's ready. Question is, who's gonna snap their freaki
 
 THOR: I'll do it.
 
-TONY St
+TONY Sta
