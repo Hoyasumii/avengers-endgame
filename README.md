@@ -3023,4 +3023,4 @@ QUILL: Hey, just so you know, this is my ship still. I'm in charge.
 
 THOR: I know. I know. Of course, you are. Of course.
 
-QUILL: See, you say of course, but the
+QUILL: See, you say of course, but then
