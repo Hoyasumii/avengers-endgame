@@ -1096,4 +1096,4 @@ CLINT BARTON: [Now openly crying] Don't...
 
 NATASHA ROMANOFF: Don't what?
 
-CLINT BARTON: ...don't give me h
+CLINT BARTON: ...don't give me ho
