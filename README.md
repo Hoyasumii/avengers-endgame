@@ -1186,4 +1186,4 @@ CLINT BARTON: [murmuring] Lila? [The device on his hand starts beeping, signalli
 
 [We hear footsteps coming towards where Clint has just disappeared, and we see Lila coming down the stairs in Avril Lavigne-like clothing, looking around, puzzled]
 
-LILA BARTON: Yeah, Dad? [She looks around
+LILA BARTON: Yeah, Dad? [She looks around]
