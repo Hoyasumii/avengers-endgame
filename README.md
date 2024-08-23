@@ -1068,4 +1068,4 @@ AKIHIKO: [Japanese]俺らがだと? 気でも狂ったか! (Orera ga dato? Ki de
 
 [Akihiko charges, which Ronin immediately blocks. Both clang swords for two seconds, seeming that the yakuza leader has the upper hand, but Ronin punches him in the face, and sword-points him to his throat, in which Akihiko is temporarily petrified.]
 
-[He lowers down his sword as if he is about to surrend
+[He lowers down his sword as if he is about to surrende
