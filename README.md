@@ -1474,3 +1474,4 @@ NEBULA (2014): I swear...I will make you proud.
 
 [Nebula (2014) is suddenly in pain and opens up future Nebula's memories.]
 
+R
