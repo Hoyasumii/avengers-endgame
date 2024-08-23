@@ -2722,4 +2722,4 @@ THOR: I knew it!
 
 THANOS (2014): In all my years of conquest– violence– slaughter– It was never personal. But I'll tell you now– what I'm about to do to your stubborn, annoying little planet– I'm gonna enjoy it. Very, very much.
 
-[Thanos' (2014) entire army is summons to the ground which include the Children of Thanos, Chitauri, Sakaarans, Outriders and Chitauri Gorillas. Upon seeing the army descending on Earth, Steve sl
+[Thanos' (2014) entire army is summons to the ground which include the Children of Thanos, Chitauri, Sakaarans, Outriders and Chitauri Gorillas. Upon seeing the army descending on Earth, Steve slo
