@@ -1910,4 +1910,4 @@ FRIGGA (2013): Oh, sometimes it takes a second.
 
 [Thor summons Mjolnir.]
 
-THOR: [Happy and a li
+THOR: [Happy and a lit
