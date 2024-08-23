@@ -3073,4 +3073,4 @@ STEVE ROGERS: Don't worry, Bruce. Clip all the branches.
 
 BRUCE BANNER: You know, I tried. When I had the gauntlet, the stones, I really tried to bring her back. [Looks at Steve] I miss her, man.
 
-S
+ST
