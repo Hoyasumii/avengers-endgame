@@ -2544,4 +2544,4 @@ RHODEY: Canopy. Canopy. Canopy. [Rhodey gets out of his damaged suit]
 
 BRUCE BANNER: Rhodey, Rocket, get outta here!
 
-[Rhodey crawls over to help Rocket wh
+[Rhodey crawls over to help Rocket whi
