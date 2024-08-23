@@ -846,4 +846,4 @@ STEVE ROGERS: As a baby!
 
 BRUCE BANNER: He'll grow.
 
-STEVE ROGERS: Bring Scott b
+STEVE ROGERS: Bring Scott ba
