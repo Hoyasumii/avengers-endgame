@@ -3137,4 +3137,4 @@ Sam Wilson: Cap?
 
 (OLD) STEVE ROGERS: Hi, Sam.
 
-[Old Steve looks over t
+[Old Steve looks over to
