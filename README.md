@@ -114,4 +114,4 @@ TONY STARK: He's unbeatable.
 
 STEVE ROGERS: Did he give you any clues, any coordinates, anything?
 
-TONY STARK: Pfft! I saw this coming a few years back. I had a vision. I didn't wanna believe
+TONY STARK: Pfft! I saw this coming a few years back. I had a vision. I didn't wanna believe 
