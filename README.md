@@ -2592,3 +2592,4 @@ THANOS (2014): The arrogant never do.
 
 [Thanos then sits down]
 
+T
