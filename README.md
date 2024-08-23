@@ -2516,4 +2516,4 @@ STEVE ROGERS: No, wait. Bruce, are you okay?
 
 TONY STARK: Talk to me, Banner.
 
-BRUCE BANNER: I'm okay
+BRUCE BANNER: I'm okay.
