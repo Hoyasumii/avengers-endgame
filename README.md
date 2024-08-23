@@ -2469,3 +2469,4 @@ TONY STARK: It's not about that–
 THOR: (hushes everyone up) It's not that– Stop it! Just let me! (he tears up) Just let me do it. Just let me do something good. Something right.
 
 TONY STARK : Look– It's not just the fact that that glove is channeling enough energy to light up a continent, I'm telling you, you're in no condition.
+
