@@ -758,4 +758,4 @@ PEPPER POTTS: [Amazed] What? Wow... That's amazing, and... terrifying.
 
 TONY STARK: That's right.
 
-PEPPER POTTS: We got really 
+PEPPER POTTS: We got really l
