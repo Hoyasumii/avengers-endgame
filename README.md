@@ -2456,4 +2456,4 @@ TONY Stark: Excuse me?
 
 THOR: It's okay.
 
-EVERYONE: (holding up Thor) No, no, no, whoa. S
+EVERYONE: (holding up Thor) No, no, no, whoa. St
