@@ -1802,4 +1802,4 @@ GAMORA (2014): [Looking at a reflection of Nebula (2023)] I don't understand. Tw
 
 THANOS (2014): No. The same Nebula. From two different times. Set course for Morag. Scan the duplicate's memories. I want to see everything.
 
-[Cu
+[Cut
