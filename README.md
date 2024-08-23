@@ -1012,4 +1012,4 @@ THOR: Don't say that name.
 
 KORG: Um, yeah. We don't actually say that name in here.
 
-BRUCE BANNER: [quietly] Please take your hand off me. [He brushes away Thor's hand] Now, I know that... guy might s
+BRUCE BANNER: [quietly] Please take your hand off me. [He brushes away Thor's hand] Now, I know that... guy might sc
