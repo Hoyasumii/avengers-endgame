@@ -792,4 +792,4 @@ NATASHA ROMANOFF: He's kidding. [In a hushed tone to Bruce] You can't say things
 
 BRUCE BANNER: Just... It was a bad joke.
 
-NATASHA ROMANOFF: Yo
+NATASHA ROMANOFF: You
