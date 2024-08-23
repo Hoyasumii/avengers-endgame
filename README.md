@@ -434,4 +434,4 @@ NATASHA ROMANOFF: Please.
 
 RHODEY: [reluctantly] Okay. [then Rhodes cuts off his]
 
-[Nat starts to cry as she t
+[Nat starts to cry as she tr
