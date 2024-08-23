@@ -350,4 +350,4 @@ Scott Lang: What the hell happened here?
 
 Scott Lang: No. Please. Please, please. [moves on to check the other side of the engraved stone] No, no, no. No. [Lang excuses aside a young couple as he keeps on checking another engraved stone if his daughter's name is on one.] Excuse me, sorry. No, Cassie, no.
 
-[The camera keeps panning and switching as Lang checks 
+[The camera keeps panning and switching as Lang checks t
