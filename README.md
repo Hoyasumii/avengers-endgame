@@ -2672,4 +2672,4 @@ NEBULA (2014): I have the stones.
 
 CLINT BARTON: What?!
 
-[Clint tries to get up but Nebula (2014) steps her foot 
+[Clint tries to get up but Nebula (2014) steps her foot d
