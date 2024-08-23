@@ -1200,4 +1200,4 @@ CLINT BARTON: [Holding up the baseball glove and throw it to Stark] Yeah, it wor
 
 STEVE ROGERS: Okay, so the "how" works. Now we gotta figure out the when and the where. Almost all of us has had an encounter with at least one of the six Infinity Stones.
 
-TONY STAR
+TONY STARK
