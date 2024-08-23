@@ -2386,4 +2386,4 @@ CLINT BARTON: Damn you!
 
 NATASHA ROMANOFF: Let me go.
 
-CLINT BARTON: No. Please, no
+CLINT BARTON: No. Please, no.
