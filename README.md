@@ -620,4 +620,4 @@ BRUCE BANNER: [dropping the act] No, I get it. I'm kidding! I know. It's crazy. 
 
 SCOTT LANG: Yeah! Wh...How? Why?
 
-BRUCE BANNER: Five years ago, we got our asses beaten. Except it was worse for me. Because I lost twice. First, Hulk lost, then Banner lost. Then,
+BRUCE BANNER: Five years ago, we got our asses beaten. Except it was worse for me. Because I lost twice. First, Hulk lost, then Banner lost. Then, 
