@@ -432,4 +432,4 @@ RHODEY: Nat...
 
 NATASHA ROMANOFF: Please.
 
-RHODEY: [reluc
+RHODEY: [reluct
