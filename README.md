@@ -1630,4 +1630,4 @@ ALEXANDER PIERCE (2012): I need the case.
 
 TONY STARK (2012): I know you got a lotta pull. I'm just saying...
 
-ALEXANDER PIERCE (2012): Okay. Then give me the case
+ALEXANDER PIERCE (2012): Okay. Then give me the case.
