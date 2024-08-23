@@ -1236,4 +1236,4 @@ SCOTT LANG: Is that a person?
 
 ROCKET: Morag's a planet. Quill was a person.
 
-SCOTT LANG: A planet? Like i
+SCOTT LANG: A planet? Like in
