@@ -1846,4 +1846,4 @@ THOR: [voice breaking up] I am totally, totally from the future.
 
 FRIGGA (2013): Yes, you are.
 
-THOR: I really need to tal
+THOR: I really need to talk
