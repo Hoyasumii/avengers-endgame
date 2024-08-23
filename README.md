@@ -220,4 +220,4 @@ CAROL DANVERS: There are a lot of other planets in the universe. And unfortunate
 
 [Thor, who has been eating a snack behind all this time, stands up and walks over to Carol. She looks behind at him. He holds his hand up, and catches Stormbreaker as it flies over to him, missing Carol by inches. But Carol doesn't even flinch, instead smiling at the God of Thunder.]
 
-Thor:
+Thor: 
