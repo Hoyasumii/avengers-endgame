@@ -318,4 +318,4 @@ JOE RUSSO: So I, uh... Went on a date the other day. It's the first time in five
 
 STEVE ROGERS: What did you talk about?
 
-JOE RUSSO: Same old crap, you know? How things
+JOE RUSSO: Same old crap, you know? How things 
