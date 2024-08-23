@@ -2488,4 +2488,4 @@ STEVE ROGERS: How do we know you will?
 
 BRUCE BANNER: We don't. But the radiation's mostly gamma. [He takes a good look at the gauntlet] It's like...I was made for this.
 
-[Nebula (
+[Nebula (2
