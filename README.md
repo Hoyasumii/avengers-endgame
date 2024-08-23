@@ -2474,4 +2474,4 @@ THOR: What do you– What do you think is coursing through my veins right now?
 
 RHODEY: Cheez Whiz?
 
-THOR: Lightn
+THOR: Lightni
