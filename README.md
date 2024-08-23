@@ -472,4 +472,4 @@ NATASHA ROMANOFF: [Smiling] You first.
 
 Scott Lang: Oh! Hi. Hi! Is anyone home? This is Scott Lang. We met a few years ago, at the airport? In Germany? I got really big, and I had my mask on. You wouldn't recognize me.
 
-STEVE ROGERS: [Standing up]
+STEVE ROGERS: [Standing up] 
