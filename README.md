@@ -198,4 +198,4 @@ NATASHA ROMANOFF: He used the stones again.
 
 BRUCE BANNER: Hey, hey, hey. We'd be going in short-handed, you know.
 
-RHODEY: Look, 
+RHODEY: Look, h
