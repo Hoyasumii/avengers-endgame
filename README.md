@@ -790,4 +790,4 @@ SCOTT LANG: Excuse me?
 
 NATASHA ROMANOFF: He's kidding. [In a hushed tone to Bruce] You can't say things like that!
 
-BRUCE BANNER: Just... It was a bad joke
+BRUCE BANNER: Just... It was a bad joke.
