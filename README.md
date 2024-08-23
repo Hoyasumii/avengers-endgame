@@ -688,4 +688,4 @@ NATASHA ROMANOFF: Well, you pulled this off. I remember a time when that seemed 
 
 TONY STARK: Look at a mod inspiration, let me see what check out. So, recommend one last sim before we pack it in for the night. This time, in the shape of a mobius strip, inverted, please.
 
-F.R.I.D
+F.R.I.D.
