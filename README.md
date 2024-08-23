@@ -150,4 +150,4 @@ RHODEY: Sit down. Sit.
 
 TONY STARK: We need you. You're new blood. Bunch of tired old mules! [Tony walks right up to Steve's face, his voice hushing down to a venomous whisper] I got nothing for you, Cap! I got no coordinates, no clues, no strategies, no options. Zero. Zip. Nada. No trust. Liar.
 
-[Steve looks a
+[Steve looks af
