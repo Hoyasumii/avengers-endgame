@@ -1902,4 +1902,4 @@ ROCKET: Three... two...
 
 THOR: No, wait!
 
-[Thor holds out 
+[Thor holds out h
