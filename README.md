@@ -2925,4 +2925,4 @@ PETER PARKER: Mr. Stark? [He runs up to his fallen mentor. Tears start to form i
 
 PETER PARKER: I'm sorry– Tony–
 
-[Peter is gently led aside to grieve. Pepper Pott
+[Peter is gently led aside to grieve. Pepper Potts
