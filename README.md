@@ -874,4 +874,4 @@ TONY STARK: Why the long face? Let me guess: He turned into a baby.
 
 STEVE ROGERS: Among other things, yeah. What are you doing here?
 
-[He gets out of the car, and walks around
+[He gets out of the car, and walks around 
