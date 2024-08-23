@@ -1676,4 +1676,4 @@ THOR (2012): I had no idea if that was gonna work.
 
 TONY STARK (2012): The case?
 
-THOR (2012): The case. It's, uhh... Where's
+THOR (2012): The case. It's, uhh... Where's 
