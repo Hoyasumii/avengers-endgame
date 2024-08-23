@@ -1106,4 +1106,4 @@ TONY STARK: [To Thor] Drifting left. On the side there, Lebowski. [To Rocket, wh
 
 ROCKET: It's Rocket. Take it easy. You're only a genius on Earth, pal.
 
-[Cut to a side room, where we see Scott, Bruce, Steve 
+[Cut to a side room, where we see Scott, Bruce, Steve a
