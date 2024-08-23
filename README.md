@@ -2226,4 +2226,4 @@ HOWARD STARK: Let's just say that the greater good has rarely outweighed my own 
 
 SECURITY OFFICER: And you've never seen these two men before?
 
-ELEVATOR LADY: No, I've got an eye for this. The two of them looked fishy
+ELEVATOR LADY: No, I've got an eye for this. The two of them looked fishy.
