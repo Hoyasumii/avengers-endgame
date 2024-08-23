@@ -240,4 +240,4 @@ NEBULA: Approaching jump in 3... 2... 1!
 
 [The ship jumps forward into a wormhole, and we see Steve holding onto his seat for dear life. A close up of his eyes show them widening slightly at the exhilaration of this new experience. The ship slows down, and the ship hovers in orbit of the planet seen in the hologram previously. Carol Danvers hovers in front of the Benatar.]
 
-CAROL DANVERS: I'll hea
+CAROL DANVERS: I'll head
