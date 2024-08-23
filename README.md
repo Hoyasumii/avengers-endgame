@@ -1580,4 +1580,4 @@ STEVE ROGERS: Rumlow. [everyone starts getting suspicious and has their guard up
 
 SITWELL (2012): Sir? I don't understand.
 
-STEVE ROGERS: We got word there ma
+STEVE ROGERS: We got word there may
