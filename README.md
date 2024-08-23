@@ -3089,4 +3089,4 @@ BUCKY BARNES: How can I? You're taking all the stupid with you.
 
 BUCKY BARNES: Gonna miss you, Buddy.
 
-STEVE ROGERS: It's gonna be okay, Buc
+STEVE ROGERS: It's gonna be okay, Buck
