@@ -634,4 +634,4 @@ BRUCE BANNER: Yes?
 
 GIRL: Can we get a photo?
 
-BRUCE BANNER: 100%, litt
+BRUCE BANNER: 100%, littl
