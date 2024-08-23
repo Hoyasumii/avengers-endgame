@@ -1835,3 +1835,4 @@ FRIGGA (2013): You're not the Thor I know at all, are you?
 THOR: [Pretending] Yes, I am.
 
 FRIGGA (2013): The future hasn't been kind to you, has it?
+
