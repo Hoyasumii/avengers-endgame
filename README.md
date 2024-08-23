@@ -2726,4 +2726,4 @@ THANOS (2014): In all my years of conquest– violence– slaughter– It was ne
 
 SAM WILSON: Hey, Cap, you read me?
 
-[Steve stops and
+[Steve stops and 
