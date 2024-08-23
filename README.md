@@ -734,4 +734,4 @@ TONY STARK: Come on, that's your favorite story. I love you tons. [Kisses Morgan
 
 MORGAN STARK: I love you 3000.
 
-TONY STARK: [Silently] Wow. [Turns off the lamp] 3000. That's crazy
+TONY STARK: [Silently] Wow. [Turns off the lamp] 3000. That's crazy.
