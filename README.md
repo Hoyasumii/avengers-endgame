@@ -2146,4 +2146,4 @@ HOWARD STARK: Huh. MIT. Got a name?
 
 TONY STARK: Uh– Howard.
 
-HOWARD STARK: Well, th
+HOWARD STARK: Well, tha
