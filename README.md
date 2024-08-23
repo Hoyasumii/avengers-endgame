@@ -674,4 +674,4 @@ BRUCE BANNER: [Awkwardly] Dab!
 
 STEVE ROGERS: Bruce.
 
-BRUCE BANNER: Listen t
+BRUCE BANNER: Listen to
