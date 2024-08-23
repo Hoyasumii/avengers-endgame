@@ -324,4 +324,4 @@ JIM STARLIN: What about you?
 
 JOE RUSSO: I cried... just before dessert. But I'm seeing him again tomorrow, so...
 
-STEVE ROGERS: That's great. You did the hardest part. You took the jump, you didn't know where you were gonna come 
+STEVE ROGERS: That's great. You did the hardest part. You took the jump, you didn't know where you were gonna come d
