@@ -2030,4 +2030,4 @@ TONY STARK: You know what? Give me a break, Steve. I just got hit in the head wi
 
 SCOTT LANG: You said that we had one shot. This– this was our shot. We shot it. It's shot. Six stones or nothing. Six stones or nothing–
 
-TONY STARK: You're repeating y
+TONY STARK: You're repeating yo
