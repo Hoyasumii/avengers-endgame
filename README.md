@@ -900,4 +900,4 @@ STEVE ROGERS: Thank you, Tony.
 
 TONY STARK: Will you keep that a little quiet? Didn't bring one for the whole team. [Hesitates] ...We are getting the whole team, yeah?
 
-STEVE ROGERS: We're
+STEVE ROGERS: We're 
