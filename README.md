@@ -82,4 +82,4 @@ TONY STARK: Is, uh...? [Tony struggles to ask about Pepper.]
 
 PEPPER POTTS: Oh, my God! Oh, my God! [She and Tony embrace.]
 
-TONY STARK: It's oka
+TONY STARK: It's okay
