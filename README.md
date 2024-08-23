@@ -740,4 +740,4 @@ TONY STARK: [Silently] Wow. [Turns off the lamp] 3000. That's crazy. [Closed the
 
 TONY STARK: Not that it's a competition, but she loves me 3000. You were somewhere on the low 6 to 900 range. [Pepper scoffs]
 
-TONY STARK: [Absentmindedly] What 
+TONY STARK: [Absentmindedly] What a
