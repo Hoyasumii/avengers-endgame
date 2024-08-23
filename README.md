@@ -2342,4 +2342,4 @@ CLINT BARTON: Whatever it takes.
 
 [Natasha stands up.]
 
-NATASHA ROMANOFF: If we don't get that stone, billions of peop
+NATASHA ROMANOFF: If we don't get that stone, billions of peopl
