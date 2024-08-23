@@ -1962,4 +1962,4 @@ BRUCE (Memory): You murdered trillions!
 
 THANOS (Memory): You should be grateful.
 
-NATASHA (Memory): Where are the st
+NATASHA (Memory): Where are the sto
