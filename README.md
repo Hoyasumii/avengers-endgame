@@ -742,4 +742,4 @@ TONY STARK: Not that it's a competition, but she loves me 3000. You were somewhe
 
 TONY STARK: [Absentmindedly] What are you reading?
 
-PEPPER POTTS: Oh, it's just a book on composting
+PEPPER POTTS: Oh, it's just a book on composting.
