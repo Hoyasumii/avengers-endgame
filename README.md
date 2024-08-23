@@ -418,4 +418,4 @@ CAROL DANVERS: [To Rhodey] Good luck. [cuts off call]
 
 NATASHA ROMANOFF: Where are you?
 
-RHODEY: Mexic
+RHODEY: Mexico
