@@ -1034,4 +1034,4 @@ BRUCE BANNER: I think we can bring them back.
 
 THOR: Stop. stop, okay? [opens a packet on M&Ms] I know you think I'm down here wallowing in my own self-pity, waiting to be rescued and and saved. But I'm fine, okay? We're fine, aren't we? [The camera cuts to Korg and Miek eating pizza and playing once more]
 
-KORG: Nah, all good here,
+KORG: Nah, all good here, 
