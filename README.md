@@ -2514,4 +2514,4 @@ THOR: Take it off! Take it off!
 
 STEVE ROGERS: No, wait. Bruce, are you okay?
 
-TONY STARK: Talk 
+TONY STARK: Talk t
