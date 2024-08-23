@@ -200,4 +200,4 @@ BRUCE BANNER: Hey, hey, hey. We'd be going in short-handed, you know.
 
 RHODEY: Look, he's still got the stones, so...
 
-CAROL DANVERS: So let's get him... Use
+CAROL DANVERS: So let's get him... Use 
