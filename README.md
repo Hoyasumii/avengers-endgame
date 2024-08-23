@@ -952,4 +952,4 @@ BRUCE BANNER: Hello? Thor?
 
 THOR: [From another room.] Are you here about the cable?
 
-[He walks into view, and the audience's jaw drops. Thor, who is shirtless, has definitely pu
+[He walks into view, and the audience's jaw drops. Thor, who is shirtless, has definitely put
