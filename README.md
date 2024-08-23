@@ -958,4 +958,4 @@ THOR: The Cinemax ran out about two weeks ago, and the sports were all kind of f
 
 BRUCE BANNER: Thor?
 
-THOR: [He notices Bruce and Rocket standing there. He cracks into joy.] BOYS! Oh my God! Its so to see you! [To Rocket, trying to hug him] Come here, you little rasca
+THOR: [He notices Bruce and Rocket standing there. He cracks into joy.] BOYS! Oh my God! Its so to see you! [To Rocket, trying to hug him] Come here, you little rascal
