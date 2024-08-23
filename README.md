@@ -2450,4 +2450,4 @@ ROCKET: Boom!
 
 ROCKET: All right. The glove's ready. Question is, who's gonna snap their freaking fingers?
 
-THOR: I'll do 
+THOR: I'll do i
