@@ -1044,4 +1044,4 @@ BRUCE BANNER: [from offscreen] We need you, pal.
 
 [Thor shakes his head and ignores Bruce.]
 
-ROCKET: [Crossing his arms] There's b
+ROCKET: [Crossing his arms] There's be
