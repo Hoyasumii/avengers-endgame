@@ -2456,4 +2456,4 @@ TONY Stark: Excuse me?
 
 THOR: It's okay.
 
-EVERYONE: (holding up Tho
+EVERYONE: (holding up Thor
