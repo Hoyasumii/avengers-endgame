@@ -2843,4 +2843,4 @@ WANDA MAXIMOFF: You took everything from me.
 
 THANOS (2014): I don't even know who you are.
 
-WANDA MAXIMOFF: You 
+WANDA MAXIMOFF: You w
