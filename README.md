@@ -22,4 +22,4 @@ CLINT BARTON: Probably your brothers.
 
 CLINT BARTON: Uh, two mustard, please! Thanks, mama. [Camera switches to Laura facing Nathaniel]
 
-LAURA BARTON: Mayo or 
+LAURA BARTON: Mayo or m
