@@ -2060,4 +2060,4 @@ TONY STARK: They were there at a– I've a vaguely exact idea.
 
 STEVE ROGERS: How vague?
 
-SCOTT LANG: What are you talking about? Where are we go
+SCOTT LANG: What are you talking about? Where are we goi
