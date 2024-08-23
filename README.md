@@ -2780,4 +2780,4 @@ GAMORA (2014): [to Nebula] This is the one? Seriously?
 
 NEBULA: The choices were him, or a tree.
 
-[Peter pointing to Gamora (2014) in confusion
+[Peter pointing to Gamora (2014) in confusion,
