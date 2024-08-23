@@ -2746,4 +2746,4 @@ STEVE ROGERS: AVENGERS! [he summons Mjolnir] –assemble.
 
 [Thor makes a battle cry, as does Black Panther and the heroes charge, the Avengers theme swelling with their stride. Thanos raises his sword towards them, commanding his army to charge as well. Then both sides collide. The camera switches between the meet-line, Drax and Korg, Pepper and Tony, all which are battling against Thanos' army.]
 
-[Cuts to S
+[Cuts to St
