@@ -1352,4 +1352,4 @@ ROCKET: Who's the fancy broad?
 
 THOR: It's my Mother. She dies today.
 
-ROCKET: Oh. That's tod
+ROCKET: Oh. That's toda
