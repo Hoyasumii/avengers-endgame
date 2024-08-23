@@ -1369,3 +1369,4 @@ ROCKET: You think you're the only one who lost people? What do you think we're d
 THOR: Okay.
 
 ROCKET: Are you crying?
+
