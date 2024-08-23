@@ -522,4 +522,4 @@ MORGAN STARK: Define lunch or be disintegrated. [She puts on a silver and blue h
 
 TONY STARK: Okay, You should not be wearing that, okay? That is part of a special anniversary gift I'm making for Mom. (Takes the helmet off Morgan's head. She emerges out smiling mischievously.)
 
-MORGAN STARK: Oka
+MORGAN STARK: Okay
