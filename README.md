@@ -1816,4 +1816,4 @@ FRIGGA (2013): Aah!!!
 
 THOR: OH, God!
 
-FRIGGA (2013): You're better off leav
+FRIGGA (2013): You're better off leavi
