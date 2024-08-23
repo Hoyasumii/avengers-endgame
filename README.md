@@ -2638,4 +2638,4 @@ THOR: You know it's a trap, right?
 
 TONY STARK: Yeah. And I don't much care.
 
-THOR: Good. Just as long we are all in agreement. [Thunder cracks as 
+THOR: Good. Just as long we are all in agreement. [Thunder cracks as T
