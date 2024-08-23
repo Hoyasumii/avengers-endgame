@@ -1405,3 +1405,4 @@ CLINT BARTON: [To Rhodey] Hey. You got this.
 RHODEY: Let's get it done. Yes, sir.
 
 NATASHA ROMANOFF: [Walking with Clint back into the ship] See you back.
+
