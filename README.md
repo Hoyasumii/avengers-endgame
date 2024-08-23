@@ -1136,4 +1136,4 @@ BRUCE BANNER: Clint, now you're gonna feel a little discombobulated from the chr
 
 [Clint taking position on the platform]
 
-RHODEY: Wai-Wait a seco
+RHODEY: Wai-Wait a secon
