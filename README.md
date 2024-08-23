@@ -2298,4 +2298,4 @@ CLINT BARTON: Wow– Under different circumstances, this would be totally awesom
 
 [Natasha and Clint starts walking towards the mountain and climb it.]
 
-NATASHA ROMANOFF: I bet 
+NATASHA ROMANOFF: I bet t
