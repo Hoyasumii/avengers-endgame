@@ -1466,4 +1466,4 @@ THANOS (2014): His alternative is death, then. [Thanos wipes his double-bladed s
 
 NEBULA (2014): We will not fail you, Father.
 
-[Gamora (2014) rolls her
+[Gamora (2014) rolls her 
