@@ -413,3 +413,4 @@ NATASHA ROMANOFF: Alright.
 [The Avengers cut off their calls one by one...]
 
 CAROL DANVERS: [To Rhodey] Good luck. [cuts off call]
+
