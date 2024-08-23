@@ -1202,4 +1202,4 @@ STEVE ROGERS: Okay, so the "how" works. Now we gotta figure out the when and the
 
 TONY STARK: Well I'd substitute the word encounter for damn well near been killed by one of the six Infinity Stones.
 
-SCOTT LANG: I haven't, I don't even know what t
+SCOTT LANG: I haven't, I don't even know what th
