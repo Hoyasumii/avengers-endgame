@@ -3084,3 +3084,4 @@ STEVE ROGERS: You're a good man, Sam. This one's on me, though.
 STEVE ROGERS: Don't do anything stupid 'till I get back.
 
 BUCKY BARNES: How can I? You're taking all the stupid with you.
+
