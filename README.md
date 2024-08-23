@@ -1844,4 +1844,4 @@ FRIGGA (2013): I was raised by witches, boy. I see with more than eyes, and you 
 
 THOR: [voice breaking up] I am totally, totally from the future.
 
-FRIGG
+FRIGGA
