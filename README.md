@@ -2893,4 +2893,4 @@ ROCKET: Oh, yeah!
 
 STEVE ROGERS: Danvers, we need an assist here.
 
-[Cut to Scott finally activa
+[Cut to Scott finally activat
