@@ -680,4 +680,4 @@ STEVE ROGERS: About we were saying...
 
 BRUCE BANNER: Right. The whole time travel do-over? Guys, it's outside my area of expertise.
 
-NATASHA ROMANOFF: Well, you pulled this off. I remember a time when that seemed pretty impossible time
+NATASHA ROMANOFF: Well, you pulled this off. I remember a time when that seemed pretty impossible time,
