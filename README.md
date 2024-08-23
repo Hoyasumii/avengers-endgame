@@ -474,4 +474,4 @@ Scott Lang: Oh! Hi. Hi! Is anyone home? This is Scott Lang. We met a few years a
 
 STEVE ROGERS: [Standing up] Is this an old message?
 
-NATASHA ROMANOFF: [Also standing 
+NATASHA ROMANOFF: [Also standing u
