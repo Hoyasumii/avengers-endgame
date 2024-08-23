@@ -944,4 +944,4 @@ BRUCE BANNER: It's that bad.
 
 VALKYRIE: Yeah.
 
-[Cut to Rocket opening a door, and him and Bruce wa
+[Cut to Rocket opening a door, and him and Bruce wal
