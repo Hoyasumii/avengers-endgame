@@ -916,4 +916,4 @@ SCOTT LANG: Oh, God!
 
 RHODEY: What's up, regular sized man?
 
-[As Rhodey walks aw
+[As Rhodey walks awa
