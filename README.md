@@ -1784,4 +1784,4 @@ THANOS (2014): Search the duplicate's memories for Infinity Stones.
 
 BRUCE BANNER (2023): And these stones have been in a lot of different places throughout history.
 
-TONY STARK (2023): Our 
+TONY STARK (2023): Our h
