@@ -1754,4 +1754,4 @@ THE ANCIENT ONE (2012): Or I did. [She returns to Banner control of his Hulk bod
 
 BRUCE BANNER: So he must have done it for a reason.
 
-THE A
+THE AN
