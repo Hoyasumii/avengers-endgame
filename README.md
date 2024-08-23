@@ -2841,4 +2841,4 @@ T'CHALLA: Clint! Give it to me.
 
 WANDA MAXIMOFF: You took everything from me.
 
-THANOS (2014): I don't even know who you 
+THANOS (2014): I don't even know who you a
