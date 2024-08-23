@@ -12,4 +12,4 @@ LAURA BARTON: Nice throw, kiddo.
 
 COOPER BARTON: You go.
 
-LAURA BARTON: Hey, you guys want mayo or mu
+LAURA BARTON: Hey, you guys want mayo or mus
