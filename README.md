@@ -1518,4 +1518,4 @@ SITWELL (2012): We can take that [Taking Loki's Scepter from 2012 Natasha] off y
 
 NATASHA ROMANOFF (2012): By all means. Careful with that thing.
 
-CLINT BARTON (2012): 
+CLINT BARTON (2012): U
