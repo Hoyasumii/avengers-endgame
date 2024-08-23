@@ -1340,4 +1340,4 @@ THE ANCIENT ONE (2012): Let's start over, shall we?
 
 THOR: That's Jane.
 
-ROCKET: All right. Here's the deal, Tubby: You're gonna charm her and I'm gonna poke her with this thing, [He holds up a device.] and extract the Re
+ROCKET: All right. Here's the deal, Tubby: You're gonna charm her and I'm gonna poke her with this thing, [He holds up a device.] and extract the Rea
