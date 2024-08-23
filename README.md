@@ -538,4 +538,4 @@ MORGAN STARK: No. I found it, though.
 
 TONY STARK: You like going to the garage, huh? So does daddy. It's fine, actually. Your mom never wears anything I buy her.
 
-(They start walking towards the house, but Tony notices a black Audi pulling coming to a stop a few meters away. Steve, Nat, and Scott get out of the car. Tony sigh
+(They start walking towards the house, but Tony notices a black Audi pulling coming to a stop a few meters away. Steve, Nat, and Scott get out of the car. Tony sighs
