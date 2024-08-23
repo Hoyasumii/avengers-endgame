@@ -34,4 +34,4 @@ LAURA BARTON: Hey guys! Enough practice, soup's on!
 
 CLINT BARTON: Alright, we're coming; we're hungry. [Clint looks behind him, but there's no one there, but dust being blown away by the wind.] Lila, let's go. [Clint starts to look around] Lila? [Clint starts to move and look around, and pick up the bow she had.] Honey? [Clint looks around to see Laura and the boys, only they are gone now. He looks seriously panicked and confused as he hurriedly drops the arrows and jogs over to where they were.] Hey, babe! Babe? Babe? Boys? Boys? Laura?
 
-[Lig
+[Ligh
