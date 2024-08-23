@@ -1610,4 +1610,4 @@ TONY STARK (2012): Alexander Pierce. He's the man, one of the folks behind Nick 
 
 ALEXANDER PIERCE (2012): My friends call me Mr. Secretary. I'm gonna have to ask you to turn that prisoner over to me.
 
-THOR (2012): Lo
+THOR (2012): Lok
