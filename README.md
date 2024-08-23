@@ -594,4 +594,4 @@ TONY STARK: Good job. I'm saved. [Turning to face Cap, Nat and Scott.] I wish yo
 
 STEVE ROGERS: Tony, I get it. And I'm happy for you, I really am. But this is a second chance. TONY STARK: I got my second chance right here, Cap. I can't roll the dice again. If you don't talk shop, you can stay for lunch.
 
-[We see Cap, Nat and Scott walking back to their car outside Tony'
+[We see Cap, Nat and Scott walking back to their car outside Tony's
