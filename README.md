@@ -124,4 +124,4 @@ TONY STARK: [starting to seethe] And I needed you. As in past tense. That trumps
 
 RHODEY: Tony, Tony, Tony!
 
-TONY STARK: Alive and otherwise what we needed was a suit of armor around the world! Remember that? Whether it impacted our p
+TONY STARK: Alive and otherwise what we needed was a suit of armor around the world! Remember that? Whether it impacted our pr
