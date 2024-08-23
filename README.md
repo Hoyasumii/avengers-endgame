@@ -2278,4 +2278,4 @@ HOWARD STARK: Seems very familiar. Weird beard.
 
 [2014 Nebula has captured 2023 Nebula and 2014 Nebula is fighting her future self.]
 
-NEBULA (2014): You're we
+NEBULA (2014): You're wea
