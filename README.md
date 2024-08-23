@@ -648,4 +648,4 @@ SCOTT LANG: They're Hulk fans, they don't know Ant-Man. Nobody does.
 
 BRUCE BANNER: Wait, no, no, he feels bad. No, he wants you to...he wants to...[to one of the boys] You want to take a picture with him, right? [The boy shakes his head vigorously.]
 
-BOY: Stranger D
+BOY: Stranger Da
