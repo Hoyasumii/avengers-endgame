@@ -2376,4 +2376,4 @@ CLINT BARTON: Okay. You win.
 
 CLINT BARTON: Tell my family I love them.
 
-[Natasha returns the favor by ta
+[Natasha returns the favor by tac
