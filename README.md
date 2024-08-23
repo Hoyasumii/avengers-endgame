@@ -248,4 +248,4 @@ NATASHA ROMANOFF: This is gonna work, Steve.
 
 STEVE ROGERS: I know it will.
 
-[We see Steve holdin
+[We see Steve holding
