@@ -2,4 +2,4 @@
 
 CLINT BARTON: How about now?
 
-[Both Lila and Clint giggle, as the camera panels into a long shot sho
+[Both Lila and Clint giggle, as the camera panels into a long shot show
