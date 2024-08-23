@@ -1834,4 +1834,4 @@ FRIGGA (2013): You're not the Thor I know at all, are you?
 
 THOR: [Pretending] Yes, I am.
 
-FRIGGA (2013): The future hasn't be
+FRIGGA (2013): The future hasn't bee
