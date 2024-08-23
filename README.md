@@ -254,4 +254,4 @@ STEVE ROGERS: Cause I don't know what I'm going to do if it doesn't.
 
 [Carol Danvers approaches the Benatar.]
 
-CAROL DANVERS: No satell
+CAROL DANVERS: No satelli
