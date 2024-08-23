@@ -3075,3 +3075,4 @@ BRUCE BANNER: You know, I tried. When I had the gauntlet, the stones, I really t
 
 STEVE ROGERS: Me, too.
 
+S
