@@ -1382,4 +1382,4 @@ THOR: I can do this. I can do it, I can't do this.
 
 [Thor runs away.]
 
-ROCKET: Alright, Heartbreaker. Sh
+ROCKET: Alright, Heartbreaker. She
