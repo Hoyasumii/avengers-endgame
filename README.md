@@ -30,4 +30,4 @@ LAURA BARTON: Ketchup? [Camera switches back to Clint and his daughter] I can do
 
 CLINT BARTON: Mind your elbow. [Lila releases the arrow and it hits the target directly in the bullseye.] Hahaha! Good job, Hawkeye. Go get your arrow.
 
-LAURA BARTON: Hey guys! Enough
+LAURA BARTON: Hey guys! Enough 
