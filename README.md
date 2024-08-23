@@ -3025,4 +3025,4 @@ THOR: I know. I know. Of course, you are. Of course.
 
 QUILL: See, you say of course, but then you touch the map. It makes you think that maybe you didn't realize I was in charge.
 
-THOR: Quail– you– t
+THOR: Quail– you– th
