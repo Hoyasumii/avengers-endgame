@@ -2534,4 +2534,4 @@ CLINT BARTON: (struggling to speak from sheer happiness) Honey. Honey.
 
 SCOTT LANG: Guys– I think it worked!
 
-[Bruce opens his eyes and see
+[Bruce opens his eyes and sees
