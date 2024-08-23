@@ -2490,4 +2490,4 @@ BRUCE BANNER: We don't. But the radiation's mostly gamma. [He takes a good look 
 
 [Nebula (2014) sneaks off to the Quantum portal and activates it]
 
-TONY STARK: Good t
+TONY STARK: Good to
