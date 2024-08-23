@@ -446,4 +446,4 @@ STEVE ROGERS: And to see a friend.
 
 NATASHA ROMANOFF: Clearly, your friend is fine.
 
-STEVE ROGERS: You know I saw a pod of whales when 
+STEVE ROGERS: You know I saw a pod of whales when I
