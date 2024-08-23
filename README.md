@@ -1740,4 +1740,4 @@ BRUCE BANNER: Then, why the hell did Strange give it away?
 
 THE ANCIENT ONE (2012): [Surprised] What did you say?
 
-BRUCE BA
+BRUCE BAN
