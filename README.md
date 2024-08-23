@@ -2891,4 +2891,4 @@ F.R.I.D.A.Y.: Something just entered the upper atmosphere.
 
 ROCKET: Oh, yeah!
 
-STEVE ROGERS: Danvers, we need an assist her
+STEVE ROGERS: Danvers, we need an assist here
