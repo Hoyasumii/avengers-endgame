@@ -480,4 +480,4 @@ SCOTT LANG: Ant-Man? Ant-Man, I know you know that. I need to talk to you guys.
 
 [Cut to Scott inside the Avengers Compound, pacing worriedly in front of Steve and Natasha.]
 
-STEVE ROGERS: Scott. Are you 
+STEVE ROGERS: Scott. Are you o
