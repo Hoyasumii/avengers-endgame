@@ -3113,4 +3113,4 @@ BRUCE BANNER: And returning in, five, four, three, two, one–
 
 Sam Wilson: Where is he?
 
-BRUCE BANNER: I d
+BRUCE BANNER: I do
