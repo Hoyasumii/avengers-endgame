@@ -1318,4 +1318,4 @@ THE ANCIENT ONE (2012): I'd be careful going that way. We just had the floors wa
 
 BRUCE BANNER: I'm looking for Doctor Strange.
 
-THE ANCIENT ONE (2012): You're about... five years too early. Stephen Strange is 
+THE ANCIENT ONE (2012): You're about... five years too early. Stephen Strange is c
