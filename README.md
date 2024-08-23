@@ -118,4 +118,4 @@ TONY STARK: Pfft! I saw this coming a few years back. I had a vision. I didn't w
 
 STEVE ROGERS: Tony, I'm gonna need you to focus.
 
-TONY STARK: [starting to seethe] And I needed you. As in past tense. That trumps what you need. It's too late buddy. Sorry. You know what I need? [Tony stands, pushing things off the table with a clatter. Everyone winces at the noise.] I need to shave. And I believe I reme
+TONY STARK: [starting to seethe] And I needed you. As in past tense. That trumps what you need. It's too late buddy. Sorry. You know what I need? [Tony stands, pushing things off the table with a clatter. Everyone winces at the noise.] I need to shave. And I believe I remem
