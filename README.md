@@ -2024,4 +2024,4 @@ TONY STARK: Sorry, buddy. We got a– problem.
 
 SCOTT LANG: Huh. Yeah, we do.
 
-STEVE ROGERS: We
+STEVE ROGERS: Wel
