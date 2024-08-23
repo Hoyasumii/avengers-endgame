@@ -1040,4 +1040,4 @@ KORG: Nah, all good here, mate.
 
 THOR: So, whatever it is that you're offering, we're not into it, don't care, couldn't care less. Goodbye.
 
-BRUCE BANNER: [from 
+BRUCE BANNER: [from o
