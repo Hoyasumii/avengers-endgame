@@ -2833,4 +2833,4 @@ CORVUS GLAIVE: She's not responding.
 
 EBONY MAW (2014): [pointing.] Sire!
 
-[Thanos sees the gauntlet. Clint rushes through Outriders, befo
+[Thanos sees the gauntlet. Clint rushes through Outriders, befor
