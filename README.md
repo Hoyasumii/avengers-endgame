@@ -268,4 +268,4 @@ ROCKET: Oh no.
 
 STEVE ROGERS: Where are they?
 
-CAROL DANVERS: Answer th
+CAROL DANVERS: Answer the
