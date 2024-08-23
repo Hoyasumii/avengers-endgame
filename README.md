@@ -580,4 +580,4 @@ TONY STARK: Good. You had me worried there. 'Cause that'd be horse shit. That's 
 
 NATASHA ROMANOFF: Tony... We have to take a stand.
 
-TONY STARK: We did stand. And yet, her
+TONY STARK: We did stand. And yet, here
