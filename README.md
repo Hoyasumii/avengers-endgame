@@ -2552,4 +2552,4 @@ ROCKET: Hurry up! Hurry up! Come on!
 
 BRUCE BANNER: Rhodey!
 
-[A flood engulfs both Rhodey and Rocket
+[A flood engulfs both Rhodey and Rocket]
