@@ -2174,4 +2174,4 @@ HOWARD STARK: Need your briefcase?
 
 [Tony grabs the case]
 
-HOWARD STARK: You're not one of those beatniks, are ya, Pott
+HOWARD STARK: You're not one of those beatniks, are ya, Potts
