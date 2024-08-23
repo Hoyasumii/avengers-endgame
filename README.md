@@ -1184,4 +1184,4 @@ LILA BARTON: [offscreen] Cooper? Where are my headphones?
 
 CLINT BARTON: [murmuring] Lila? [The device on his hand starts beeping, signalling the end of this visit] Lila! [He dives for the door, but only manages to open it before he shrinks back to go back to the future.]
 
-[We hear footsteps coming towards where Clint has just disappe
+[We hear footsteps coming towards where Clint has just disappea
