@@ -1424,4 +1424,4 @@ CLINT BARTON: It's a long way from Budapest.
 
 RHODEY: Okay, so, uhh... We just wait around for this Quill guy to show up and then he leads us to the Power Stone, is that it?
 
-NEBULA: [Looking around] Let's take cover. We're not the only ones in 201
+NEBULA: [Looking around] Let's take cover. We're not the only ones in 2014
