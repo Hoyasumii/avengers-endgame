@@ -1178,4 +1178,4 @@ BRUCE BANNER: [Turning to Clint] Alright, Clint. We're going in 3... 2... 1!
 
 [A helmet similar to Ant-Man's but white and more visible face pops on Clint's head, and he goes quantum. Clint flies through the quantum realm and into an opening. He grows back to normal size, but he's at a different place, and seemingly, time.]
 
-[Clint look around his family home, which unlike at the start of the movie, looks a lot more alive. Th
+[Clint look around his family home, which unlike at the start of the movie, looks a lot more alive. The
