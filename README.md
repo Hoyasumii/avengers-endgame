@@ -2776,4 +2776,4 @@ GAMORA (2014): [Kicks Peter in the nuts, slightly hurting Peter] Don't– touch�
 
 PETER QUILL: You missed the first time– Then you got them both the second time.
 
-GAMORA (2014): [to Nebula] This is the one? Seri
+GAMORA (2014): [to Nebula] This is the one? Serio
