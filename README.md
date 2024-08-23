@@ -2744,4 +2744,4 @@ WONG: What, you wanted more?
 
 STEVE ROGERS: AVENGERS! [he summons Mjolnir] –assemble.
 
-[Thor makes a batt
+[Thor makes a battl
