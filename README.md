@@ -1984,4 +1984,4 @@ THANOS (2014): I found them all. I won. Tipped the cosmic scales to balance.
 
 EBONY MAW (2014): This is your future.
 
-THAN
+THANO
