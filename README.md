@@ -3051,4 +3051,4 @@ ROCKET: I got some blasters, unless you guys wanna use knives.
 
 MANTIS: [enthusiastically] Oooh, yes. Please, use knives.
 
-DRAX: Yeah, kniv
+DRAX: Yeah, knive
