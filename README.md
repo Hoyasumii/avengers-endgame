@@ -286,4 +286,4 @@ THANOS: I used the stones to destroy the stones. It nearly killed me. But the wo
 
 RHODEY: We have to tear this place apart, he-he-he has to be lying.
 
-NEBULA: My father is many things. A liar is not one of 
+NEBULA: My father is many things. A liar is not one of t
