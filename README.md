@@ -1810,4 +1810,4 @@ FRIGGA (2013): My ladies, I'll see you after. Go on.
 
 FRIGGA (2013): [To Thor] What are you doing?
 
-THOR: A
+THOR: Aa
