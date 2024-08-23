@@ -2266,4 +2266,4 @@ HOWARD STARK: Smart guy.
 
 TONY STARK: He did his best.
 
-HOWARD STARK: Let me tell you. That kid's not e
+HOWARD STARK: Let me tell you. That kid's not ev
