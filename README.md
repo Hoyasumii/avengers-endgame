@@ -3009,4 +3009,4 @@ THOR: I'm counting on it. Your Majesty.
 
 VALKYRIE: What will you do?
 
-THOR: I'm not s
+THOR: I'm not su
