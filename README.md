@@ -2312,4 +2312,4 @@ NATASHA ROMANOFF: Who are you?
 
 RED SKULL (2014): Consider me a guide. To you, and to all who seek the Soul Stone.
 
-NATASHA ROMANOFF: Oh, good. You tell us where
+NATASHA ROMANOFF: Oh, good. You tell us where 
