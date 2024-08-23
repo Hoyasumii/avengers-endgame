@@ -2871,4 +2871,4 @@ PEPPER POTTS: Uh, is anyone else seeing this?
 
 PETER PARKER: I got this. I got this! Okay, I don't got this. Help! Somebody, help!
 
-STEVE: Hey, Queens, h
+STEVE: Hey, Queens, he
