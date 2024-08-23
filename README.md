@@ -3017,4 +3017,4 @@ ROCKET: Move it or lose it, hairbag.
 
 [scene cuts to Quill searching for Gamora on the screen as Thor walks in he closes it]
 
-THOR: Well, here we are. Tree! Good to s
+THOR: Well, here we are. Tree! Good to se
