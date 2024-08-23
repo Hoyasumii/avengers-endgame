@@ -994,4 +994,4 @@ BRUCE BANNER: Buddy, you all right?
 
 THOR: Yes, I'm fine! Why, don't I look all right?
 
-ROCKET: [Concerned] You look l
+ROCKET: [Concerned] You look li
