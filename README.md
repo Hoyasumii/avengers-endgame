@@ -2174,4 +2174,4 @@ HOWARD STARK: Need your briefcase?
 
 [Tony grabs the case]
 
-HOWARD STARK: You're 
+HOWARD STARK: You're n
