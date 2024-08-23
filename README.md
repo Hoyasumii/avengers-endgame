@@ -1968,4 +1968,4 @@ THANOS (Memory): Gone. Reduced to atoms.
 
 BRUCE (Memory): You used them two days ago.
 
-THANOS (Memory): I used the stones to destroy t
+THANOS (Memory): I used the stones to destroy th
