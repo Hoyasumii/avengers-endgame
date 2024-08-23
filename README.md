@@ -2915,4 +2915,4 @@ THANOS (2014): I am– inevitable.
 
 TONY STARK: And I– am– Iron Man.
 
-[Tony snaps his fingers with a loud "CLANG" and a blinding flash of white. Rocket fires at a Leviathan and before it devours him, it crumbles into 
+[Tony snaps his fingers with a loud "CLANG" and a blinding flash of white. Rocket fires at a Leviathan and before it devours him, it crumbles into a
