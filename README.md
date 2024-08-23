@@ -3059,4 +3059,4 @@ GROOT: I am Groot.
 
 QUILL: Not necessary...
 
-THOR: There sh
+THOR: There sha
