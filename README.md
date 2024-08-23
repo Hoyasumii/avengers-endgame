@@ -2722,4 +2722,4 @@ THOR: I knew it!
 
 THANOS (2014): In all my years of conquest– violence– slaughter– It was never personal. But I'll tell you now– what I'm about to do to your stubborn, annoying little planet– I'm gonna enjoy it. Very, very much.
 
-[Thano
+[Thanos
