@@ -1750,4 +1750,4 @@ THE ANCIENT ONE (2012): ...Why?
 
 BRUCE BANNER: I have no idea. Maybe he made a mistake.
 
-THE ANCIENT ONE (2012): Or I did. [She returns to Banner contro
+THE ANCIENT ONE (2012): Or I did. [She returns to Banner control
