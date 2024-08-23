@@ -2568,4 +2568,4 @@ SCOTT LANG: Wait! I'm here! I'm here, can you hear me?
 
 CLINT BARTON: Cap?
 
-[Clint finds the gauntlet is with him but sense
+[Clint finds the gauntlet is with him but senses
