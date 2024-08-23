@@ -868,4 +868,4 @@ BRUCE BANNER: [holds up his his hands in a dramatic way] Time travel!
 
 BRUCE BANNER: What? I..I see this as an absolute win!
 
-[We cut to see Steve sitting outside the Avengers Compou
+[We cut to see Steve sitting outside the Avengers Compoun
