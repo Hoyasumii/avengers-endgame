@@ -2282,4 +2282,4 @@ NEBULA (2014): You're weak.
 
 NEBULA: I'm you.
 
-[Nebula (201
+[Nebula (2014
