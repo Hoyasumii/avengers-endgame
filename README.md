@@ -180,4 +180,4 @@ NATASHA ROMANOFF: Hey, you know, we usually work as a team here, and between you
 
 STEVE ROGERS: We realize up there is more your territory, but this is our fight too.
 
-RHODEY: You even know wh
+RHODEY: You even know whe
