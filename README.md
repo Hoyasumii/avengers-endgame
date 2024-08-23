@@ -1030,4 +1030,4 @@ BRUCE BANNER: It was you. You helped me.
 
 THOR: [walks over and looks out the window and points, still holding his beer] Why don't you ask the, Asgardians down there, how much my help was worth. [he drops onto the sofa] The ones that are left, anyway.
 
-BRUCE BANNER: I think we can bring the
+BRUCE BANNER: I think we can bring them
