@@ -1686,4 +1686,4 @@ THOR (2012): Loki!?
 
 [Cut to a walkway several floors up. Steve is having trouble on his communicator.]
 
-STEVE ROGERS: Tony, what's going on? Tell me you found that cube. [He looks up and gr
+STEVE ROGERS: Tony, what's going on? Tell me you found that cube. [He looks up and gro
