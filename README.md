@@ -1954,4 +1954,4 @@ RHODEY: Me either. But we work with what we got, right?
 
 RHODEY: Sync up. [They both suit up.] Three.. two.. one...
 
-[Rhodey is the only one who disappears while Nebula is left behind
+[Rhodey is the only one who disappears while Nebula is left behind 
