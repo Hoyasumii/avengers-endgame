@@ -2420,4 +2420,4 @@ CLINT BARTON: We can't get her back.
 
 THOR: Wha– what?
 
-CLINT BARTON: It can't be und
+CLINT BARTON: It can't be undo
