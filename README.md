@@ -1252,4 +1252,4 @@ NEBULA: A dominion of death, at the very center of Celestial existence. It's whe
 
 SCOTT LANG: Not it.
 
-[We see Tony and Nat lying on a table surrounded by papers,
+[We see Tony and Nat lying on a table surrounded by papers, 
