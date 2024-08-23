@@ -2342,4 +2342,4 @@ CLINT BARTON: Whatever it takes.
 
 [Natasha stands up.]
 
-NATASHA ROMANOFF: If we d
+NATASHA ROMANOFF: If we do
