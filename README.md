@@ -438,4 +438,4 @@ RHODEY: [reluctantly] Okay. [then Rhodes cuts off his]
 
 STEVE ROGERS: You know I'd offer to cook you dinner but you seem pretty miserable already.
 
-[Out of nowhere, Roger slumps over a bookshelf, in the same mood as h
+[Out of nowhere, Roger slumps over a bookshelf, in the same mood as he
