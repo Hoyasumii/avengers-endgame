@@ -1240,4 +1240,4 @@ SCOTT LANG: A planet? Like in outer space?
 
 ROCKET: Oh, look. It's like a little puppy, all happy and everything. [Imitating talking to a puppy] Do you wanna go to space? You wanna go to space, puppy? I'll get you to space.
 
-[Cut to everyone facing Nebula in the planning room, and Nat writing notes for 
+[Cut to everyone facing Nebula in the planning room, and Nat writing notes for t
