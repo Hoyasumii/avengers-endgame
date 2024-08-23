@@ -1078,4 +1078,4 @@ AKIHIKO: 待て! 助けてくれ! お前に何でもやる! 何が欲しい? (Ro
 
 RONIN: [Raising his katana, in English] What I want... You can't give me.
 
-[He thrusts the blade downwards into Akihiko's stomach. The body of the Japanese falls to the ground. Ronin grabs the sword, and wipes it on his gauntlet, ridding it of the blood of Akihiko. He notices someone behind him, and grabs his mask, and s
+[He thrusts the blade downwards into Akihiko's stomach. The body of the Japanese falls to the ground. Ronin grabs the sword, and wipes it on his gauntlet, ridding it of the blood of Akihiko. He notices someone behind him, and grabs his mask, and sl
