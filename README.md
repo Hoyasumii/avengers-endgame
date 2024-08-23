@@ -396,4 +396,4 @@ CAROL DANVERS: Not likely.
 
 ROCKET: What, you gonna get another haircut?
 
-CAROL DANVERS: [irritated] Listen fur-face, I'm cov
+CAROL DANVERS: [irritated] Listen fur-face, I'm cove
