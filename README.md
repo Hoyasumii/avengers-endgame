@@ -1979,3 +1979,4 @@ THANOS (2014): Nothing. Yet. They're not trying to stop something I'm going to d
 GAMORA (2014): The stones...
 
 THANOS (2014): I found them all. I won. Tipped the cosmic scales to balance.
+
