@@ -554,4 +554,4 @@ TONY STARK: In Layman's terms, it means you're not coming home.
 
 SCOTT LANG: I did.
 
-TONY STARK: No, you accidentally survived. It's a billion to one cosmic fluke. And now you wann
+TONY STARK: No, you accidentally survived. It's a billion to one cosmic fluke. And now you wanna
