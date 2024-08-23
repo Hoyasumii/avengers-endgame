@@ -628,4 +628,4 @@ BRUCE BANNER: I did. For years, I've been treating the Hulk like he's some kind 
 
 [Three children behind Bruce walk up to him tentatively]
 
-GIRL
+GIRL:
