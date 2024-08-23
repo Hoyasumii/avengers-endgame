@@ -1044,3 +1044,4 @@ BRUCE BANNER: [from offscreen] We need you, pal.
 
 [Thor shakes his head and ignores Bruce.]
 
+R
