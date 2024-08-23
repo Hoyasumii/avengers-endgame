@@ -1054,4 +1054,4 @@ THOR: [pauses, but doesn't look up then puts the bottle down] What kind?
 
 THUG #1: あいつだ! アキヒコさんを！(Romanized: Aitsu da! Akihiko-san wo!) (Translated: It's him! He's after Akihiko!)
 
-[Both thugs fire their SMGs as both got slain
+[Both thugs fire their SMGs as both got slain 
