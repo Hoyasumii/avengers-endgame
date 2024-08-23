@@ -1222,4 +1222,4 @@ RHODEY: No, I'm pretty sure he's dead.
 
 [Thor wakes up]
 
-THOR: Where to start? Umm... The Aether, first, is not a stone, s
+THOR: Where to start? Umm... The Aether, first, is not a stone, so
