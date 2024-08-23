@@ -356,4 +356,4 @@ Scott Lang: [in a mantra-like] Please, please, please, please... No, Cassie. [La
 
 Scott Lang: What?
 
-[Scott is now seen 
+[Scott is now seen r
