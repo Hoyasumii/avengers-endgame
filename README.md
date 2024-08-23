@@ -1260,3 +1260,4 @@ BRUCE BANNER: Doctor Strange.
 
 NATASHA ROMANOFF: Yeah, what kind of doctor was he?
 
+T
