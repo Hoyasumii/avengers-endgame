@@ -210,4 +210,4 @@ STEVE ROGERS: Yeah, just like that.
 
 NATASHA ROMANOFF: Even if there's a small chance that we can undo this... I mean we owe it to everyone who's not in this room to try.
 
-BRUCE BANNER: If we do this, how do we know it's 
+BRUCE BANNER: If we do this, how do we know it's g
