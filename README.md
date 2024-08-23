@@ -1504,4 +1504,4 @@ TONY STARK: Uh, Mr. Rogers. I almost forgot that that suit [A shot of Cap walkin
 
 STEVE ROGERS: No one asked you to look, Tony.
 
-TONY STARK: [whispers] It's ridiculous
+TONY STARK: [whispers] It's ridiculous.
