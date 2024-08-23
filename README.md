@@ -56,4 +56,4 @@ TONY STARK: That was terrible. Now you have a chance to win. [Nebula flicks the 
 
 TONY STARK: And... you've won. Congratulations. [Tony reaches his hand out to shake Nebula's hand]
 
-TONY STARK: Fair game. Goo
+TONY STARK: Fair game. Good
