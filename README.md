@@ -306,4 +306,4 @@ FIVE
 
 YEARS
 
-[paus
+[pause
