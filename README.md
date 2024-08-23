@@ -1772,4 +1772,4 @@ EBONY MAW (2014): This duplicate carries a time stamp... from nine years in the 
 
 THANOS (2014): Where is this other Nebula?
 
-EBONY MAW (2014): In our solar syst
+EBONY MAW (2014): In our solar syste
