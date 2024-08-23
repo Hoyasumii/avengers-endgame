@@ -2961,4 +2961,4 @@ TONY STARK (hologram): So I thought I'd probably better record a little greeting
 
 [Cut to Clint and Wanda, standing by the riverside shortly afterwards.]
 
-CLINT: You know, I wish there was a way– that I could let her know. That we won. [Looks over to Wanda.] W
+CLINT: You know, I wish there was a way– that I could let her know. That we won. [Looks over to Wanda.] We
