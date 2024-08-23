@@ -1162,4 +1162,4 @@ RHODEY: A Wrinkle in Time, Somewhere in Time -
 
 SCOTT LANG: Hot Tub Time Machine -
 
-RHODEY: Hot Tub Time Machine. Bill and Ted's E
+RHODEY: Hot Tub Time Machine. Bill and Ted's Ex
