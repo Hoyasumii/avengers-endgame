@@ -506,4 +506,4 @@ STEVE ROGERS: Scott, what are you talking about?
 
 SCOTT LANG: What I'm saying is, time works differently in the Quantum Realm. The only problem is right now, we don't have a way to navigate it. But what if we did? I can't stop thinking about it. What if, we could somehow control the chaos, and we could navigate it? What if there was a way to enter the Quantum Realm at a certain point in time but then exit at another point in time? Like... Like before Thanos.
 
-STEVE ROGERS: Wait, are you talking about a t
+STEVE ROGERS: Wait, are you talking about a ti
