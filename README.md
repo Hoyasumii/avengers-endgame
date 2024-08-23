@@ -2744,4 +2744,4 @@ WONG: What, you wanted more?
 
 STEVE ROGERS: AVENGERS! [he summons Mjolnir] –assemble.
 
-[T
+[Th
