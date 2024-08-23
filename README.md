@@ -1828,4 +1828,4 @@ THOR: I always wear this. This is one of my favorites.
 
 FRIGGA (2013): What's wrong with your eye?
 
-THOR: Oh, my eye. That's... you remember 
+THOR: Oh, my eye. That's... you remember t
