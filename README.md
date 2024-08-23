@@ -784,4 +784,4 @@ BRUCE BANNER: Okay, here we go. Time travel test number one. Scott, fire up the 
 
 STEVE ROGERS: Breakers are set, emergency generators are on standby.
 
-BRUCE BANNER: Good. 'Cause if we blow the grid, I don't wanna lose Tiny here in the 1950's. [Scott, Nat and Cap g
+BRUCE BANNER: Good. 'Cause if we blow the grid, I don't wanna lose Tiny here in the 1950's. [Scott, Nat and Cap gi
