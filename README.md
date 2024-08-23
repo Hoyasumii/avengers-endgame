@@ -10,4 +10,4 @@ COOPER BARTON: Nice.
 
 LAURA BARTON: Nice throw, kiddo.
 
-COOPER BARTON: Yo
+COOPER BARTON: You
