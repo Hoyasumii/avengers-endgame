@@ -804,4 +804,4 @@ SCOTT LANG: You're right. I do, Captain America.
 
 [Bruce presses a button, and Scott disappears into the Quantum Tunnel.]
 
-BRUCE BANNER: On the count 
+BRUCE BANNER: On the count o
