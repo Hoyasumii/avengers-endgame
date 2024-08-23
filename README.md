@@ -1956,4 +1956,4 @@ RHODEY: Sync up. [They both suit up.] Three.. two.. one...
 
 [Rhodey is the only one who disappears while Nebula is left behind unable to move, then she riddled with pain on her head. She falls to the ground.]
 
-[Sanctuary II. 2014 Nebula is being scanned in synch with h
+[Sanctuary II. 2014 Nebula is being scanned in synch with he
