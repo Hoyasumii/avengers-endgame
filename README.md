@@ -2770,4 +2770,4 @@ PETER QUILL: Gamora? [Peter slowly approaches Gamora (2014)] I thought I lost yo
 
 PETER QUILL: Ow.
 
-GAMORA (2014):
+GAMORA (2014): 
