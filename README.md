@@ -624,4 +624,4 @@ BRUCE BANNER: Five years ago, we got our asses beaten. Except it was worse for m
 
 NATASHA ROMANOFF: No one blamed you, Bruce.
 
-BRUCE BANNER: I did. For years, I've been treating th
+BRUCE BANNER: I did. For years, I've been treating the
