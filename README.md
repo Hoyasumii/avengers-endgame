@@ -962,4 +962,4 @@ THOR: [He notices Bruce and Rocket standing there. He cracks into joy.] BOYS! Oh
 
 ROCKET: No, I'm good. I'm good. That's not necessary.
 
-THOR: Hulk, you know my friends, Miek, Korg,
+THOR: Hulk, you know my friends, Miek, Korg, 
