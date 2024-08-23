@@ -246,4 +246,4 @@ CAROL DANVERS: I'll head down for recon.
 
 NATASHA ROMANOFF: This is gonna work, Steve.
 
-STEVE ROGERS: I know it 
+STEVE ROGERS: I know it w
