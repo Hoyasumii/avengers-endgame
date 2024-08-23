@@ -1128,4 +1128,4 @@ SCOTT LANG: Sorry. We've got enough for one round trip each. That's it. No do-ov
 
 SCOTT LANG: All right. I'm not ready for this.
 
-CLINT BARTON
+CLINT BARTON:
