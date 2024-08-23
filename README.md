@@ -168,4 +168,4 @@ RHODEY: Bruce gave him a sedative. He's gonna probably be out for the rest of th
 
 CAROL DANVERS: You guys take care of him. And I'll bring him a Xorrian Elixir when I come back.
 
-[Carol walks
+[Carol walks 
