@@ -2809,4 +2809,4 @@ STEVE ROGERS: Get it started. We'll get the stones to you.
 
 HOPE VAN DYNE: We're on it, Cap.
 
-[Scott and Hope share a look and they shrink. Scott grabs Hope, and they fly to the va
+[Scott and Hope share a look and they shrink. Scott grabs Hope, and they fly to the van
