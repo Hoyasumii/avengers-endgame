@@ -108,4 +108,4 @@ STEVE ROGERS: We've been hunting Thanos for three weeks now. Deep Space scans, a
 
 TONY STARK: Who told you that? [Surprised] I didn't fight him. No, he wiped my face with a planet while the Bleecker Street Magician gave away the store. That's what happened. There was no fight.
 
-STEVE ROGERS: Ok
+STEVE ROGERS: Oka
