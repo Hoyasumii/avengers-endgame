@@ -2724,4 +2724,4 @@ THANOS (2014): In all my years of conquest– violence– slaughter– It was ne
 
 [Thanos' (2014) entire army is summons to the ground which include the Children of Thanos, Chitauri, Sakaarans, Outriders and Chitauri Gorillas. Upon seeing the army descending on Earth, Steve slowly gets back to his feet. With a fierce determination, he tightens his broken shield to his arm and stands against Thanos' giant army alone. Suddenly, a crackling comes in on his communicator.]
 
-SAM WILSON: Hey, Cap, you 
+SAM WILSON: Hey, Cap, you r
