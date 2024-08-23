@@ -1868,4 +1868,4 @@ THOR: I'm not supposed to be like everyone else, am I?
 
 FRIGGA (2013): Everyone fails at who they are supposed to be, Thor. The measure of a person, of a hero, is how well they succeed at being who they are.
 
-THOR: I really mis
+THOR: I really miss
