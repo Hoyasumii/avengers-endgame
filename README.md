@@ -672,4 +672,4 @@ STEVE ROGERS: Bruce.
 
 BRUCE BANNER: [Awkwardly] Dab!
 
-STE
+STEV
