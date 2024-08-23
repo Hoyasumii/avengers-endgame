@@ -1660,4 +1660,4 @@ TONY STARK: Good job. Meet me in the alley. I'm gonna grab a quick slice.
 
 [Suddenly, Hulk 2012 pushes Tony to the ground and the Tesseract slides to Loki]
 
-HULK
+HULK 
