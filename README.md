@@ -1412,4 +1412,4 @@ RHODEY: You guys watch each other's six.
 
 CLINT BARTON: Yeah.
 
-[They walk back into the ship, and the hatch closes. The s
+[They walk back into the ship, and the hatch closes. The sh
