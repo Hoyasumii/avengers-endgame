@@ -1012,4 +1012,4 @@ THOR: Don't say that name.
 
 KORG: Um, yeah. We don't actually say that name in here.
 
-BRUCE BANNER: [quietly] Please take your h
+BRUCE BANNER: [quietly] Please take your ha
