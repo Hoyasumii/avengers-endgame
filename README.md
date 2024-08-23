@@ -634,4 +634,4 @@ BRUCE BANNER: Yes?
 
 GIRL: Can we get a photo?
 
-BRUCE BANNER: 1
+BRUCE BANNER: 10
