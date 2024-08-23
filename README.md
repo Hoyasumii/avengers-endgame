@@ -3167,4 +3167,4 @@ Sam Wilson: Like it's someone else's.
 
 Sam Wilson: Thank you. I'll do my best.
 
-(OLD) STEVE ROGERS: That's why it's yours. [shakes Sam'
+(OLD) STEVE ROGERS: That's why it's yours. [shakes Sam's
