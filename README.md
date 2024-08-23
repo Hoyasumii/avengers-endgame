@@ -298,4 +298,4 @@ ROCKET: What... What did you do?
 
 THOR: I went for the head.
 
-[Thor slowly walks out of the shed, no real purpose in his steps as the screen blurs to noth
+[Thor slowly walks out of the shed, no real purpose in his steps as the screen blurs to nothi
