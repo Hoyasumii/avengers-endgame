@@ -316,4 +316,4 @@ LATER
 
 JOE RUSSO: So I, uh... Went on a date the other day. It's the first time in five years, you know? I'm sitting there at dinner... I didn't even know what to talk about.
 
-STEVE ROGERS: What did you t
+STEVE ROGERS: What did you ta
