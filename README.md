@@ -1174,4 +1174,4 @@ NEBULA: Exactly.
 
 SCOTT LANG: So... Back To The Future's a bunch of bullshit?
 
-BRUCE BANNER: [
+BRUCE BANNER: [T
