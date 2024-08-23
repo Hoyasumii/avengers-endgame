@@ -1757,3 +1757,4 @@ BRUCE BANNER: So he must have done it for a reason.
 THE ANCIENT ONE (2012): I fear you might be right. [gives him the Time Stone]
 
 BRUCE BANNER: Thank you.
+
