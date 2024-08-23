@@ -1960,3 +1960,4 @@ RHODEY: Sync up. [They both suit up.] Three.. two.. one...
 
 BRUCE (Memory): You murdered trillions!
 
+T
