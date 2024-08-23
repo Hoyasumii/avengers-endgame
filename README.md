@@ -2887,4 +2887,4 @@ TONY STARK: F.R.I.D.A.Y., what are they firing at?
 
 F.R.I.D.A.Y.: Something just entered the upper atmosphere.
 
-[A bright light of thundering energy comes surging down as Ca
+[A bright light of thundering energy comes surging down as Car
