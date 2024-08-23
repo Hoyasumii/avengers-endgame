@@ -2710,4 +2710,4 @@ TONY STARK: Okay, Thor. Hit me.
 
 F.R.I.D.A.Y: Boss, wake up!
 
-[Steve tries to attack Thanos but is easily shielded away by the Mad Titan. Thor's attack on Thanos is blocke
+[Steve tries to attack Thanos but is easily shielded away by the Mad Titan. Thor's attack on Thanos is blocked
