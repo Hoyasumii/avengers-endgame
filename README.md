@@ -654,4 +654,4 @@ SCOTT LANG: He's even saying no he doesn't. I get it. I don't want it either.
 
 BRUCE BANNER: But, come on, the kid! But he...but you...
 
-SCOTT LANG: I don't want a picture wit
+SCOTT LANG: I don't want a picture with
