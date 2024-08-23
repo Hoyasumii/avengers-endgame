@@ -2973,4 +2973,4 @@ HAPPY: How you doing, Squirt?
 
 MORGAN STARK: Good.
 
-HAPPY: You good? Okay. Y
+HAPPY: You good? Okay. Yo
