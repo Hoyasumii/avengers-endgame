@@ -1082,4 +1082,4 @@ RONIN: [Raising his katana, in English] What I want... You can't give me.
 
 CLINT BARTON: You shouldn't be here.
 
-NATASHA ROMANOFF: Neither should
+NATASHA ROMANOFF: Neither should 
