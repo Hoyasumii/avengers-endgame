@@ -214,4 +214,4 @@ BRUCE BANNER: If we do this, how do we know it's gonna end any differently than 
 
 CAROL DANVERS: Because before, you didn't have me.
 
-RHODEY: Hey, new girl, everyone here is about 
+RHODEY: Hey, new girl, everyone here is about t
