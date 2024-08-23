@@ -2530,4 +2530,4 @@ THOR: Worth a shot. It's over. It's okay.
 
 [Scott walks towards the outside windows and sees plants and birds. Clint hears his phone ringing and sees it's his wife calling]
 
-CLINT BARTON:
+CLINT BARTON: 
