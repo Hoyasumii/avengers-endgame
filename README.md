@@ -1158,4 +1158,4 @@ RHODEY: [counting with his fingers] Star Trek, Terminator, TimeCop, Time After T
 
 SCOTT LANG: Quantum Leap -
 
-R
+RH
