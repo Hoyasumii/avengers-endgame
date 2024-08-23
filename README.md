@@ -540,4 +540,4 @@ TONY STARK: You like going to the garage, huh? So does daddy. It's fine, actuall
 
 (They start walking towards the house, but Tony notices a black Audi pulling coming to a stop a few meters away. Steve, Nat, and Scott get out of the car. Tony sighs. He is not looking forward to the discussion about to take place.)
 
-SCOTT LANG: (Cut to after S
+SCOTT LANG: (Cut to after Sc
