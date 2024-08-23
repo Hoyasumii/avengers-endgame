@@ -270,4 +270,4 @@ STEVE ROGERS: Where are they?
 
 CAROL DANVERS: Answer the question!
 
-THANOS: The universe re
+THANOS: The universe req
