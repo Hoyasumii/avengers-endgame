@@ -2,4 +2,4 @@
 
 CLINT BARTON: How about now?
 
-[Bot
+[Both
