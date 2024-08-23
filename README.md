@@ -1892,4 +1892,4 @@ FRIGGA (2013): No, this was a gift. And you're going to be the man you're meant 
 
 THOR: I love you, Mom.
 
-FRIGGA (2013):
+FRIGGA (2013): 
