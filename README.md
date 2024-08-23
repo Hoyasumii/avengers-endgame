@@ -76,4 +76,4 @@ STEVE ROGERS: Neither could I.
 
 TONY STARK: I lost the kid.
 
-STEVE ROGERS: Tony, we los
+STEVE ROGERS: Tony, we lost
