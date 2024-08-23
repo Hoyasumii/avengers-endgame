@@ -74,4 +74,4 @@ TONY STARK: Couldn't stop him.
 
 STEVE ROGERS: Neither could I.
 
-TONY STARK: I lost 
+TONY STARK: I lost t
