@@ -1028,4 +1028,4 @@ THOR: I don't know. Is it... Natasha?
 
 BRUCE BANNER: It was you. You helped me.
 
-THOR: [walks over and l
+THOR: [walks over and lo
