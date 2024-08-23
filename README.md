@@ -464,4 +464,4 @@ STEVE ROGERS: Maybe it doesn't need to be done.
 
 NATASHA ROMANOFF: [Deep in her thoughts] I used to have nothing. And then I got this. This job... this family. And I was... I was better because of it. And even though... they're gone... I'm still trying to be better.
 
-STEVE ROGERS: I think we both 
+STEVE ROGERS: I think we both n
