@@ -1096,4 +1096,4 @@ CLINT BARTON: [Now openly crying] Don't...
 
 NATASHA ROMANOFF: Don't what?
 
-CLINT BARTON: ...don'
+CLINT BARTON: ...don't
