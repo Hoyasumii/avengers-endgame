@@ -1076,4 +1076,4 @@ AKIHIKO: [in a Gatotsu-like sword stance] 死ね! (Romanized: Shine!) (English: 
 
 AKIHIKO: 待て! 助けてくれ! お前に何でもやる! 何が欲しい? (Romanized: Mate! Tasukete kure! Omae ni nan demo yaru! Nani ga hosī? (English: Wait! Help me! I'll give you anything! What do you want?)
 
-RONIN: [Raising his katana, in English] What I want... You
+RONIN: [Raising his katana, in English] What I want... You 
