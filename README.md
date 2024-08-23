@@ -62,4 +62,4 @@ NEBULA: It was fun.
 
 [Camera switches to see Iron Man's busted helmet. Tony Stark's hand reaches forward to turn on the helmet. We pan out to see that he's sitting on the floor of a gloomy Benatar. The weight of the recent events of INFINITY WAR evident in Tony's posture. He taps the helmet with a sigh.]
 
-TONY STARK: This thing on? [The helm
+TONY STARK: This thing on? [The helme
