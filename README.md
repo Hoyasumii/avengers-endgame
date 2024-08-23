@@ -1508,4 +1508,4 @@ TONY STARK: [whispers] It's ridiculous.
 
 SCOTT LANG: I think you look great, Cap. As far as I'm concerned, that's America's ass. [Does a patriotic salute.]
 
-NATASHA ROMANOFF (2012): Wh
+NATASHA ROMANOFF (2012): Who
