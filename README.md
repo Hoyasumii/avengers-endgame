@@ -1360,4 +1360,4 @@ ROCKET: Come here. [Standing in front of him]
 
 THOR: No, no, no. I think I'm having...I'm having a panic attack. I shouldn't be here...this is...this is a bad-
 
-ROCKET: Come 
+ROCKET: Come h
