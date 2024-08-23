@@ -2991,4 +2991,4 @@ VALKYRIE: So, when can we expect you back?
 
 THOR: Um– about that–
 
-VALKYRIE: Thor. Your people need a ki
+VALKYRIE: Thor. Your people need a kin
