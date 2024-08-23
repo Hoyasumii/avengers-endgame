@@ -1422,4 +1422,4 @@ CLINT BARTON: It's a long way from Budapest.
 
 [Natasha just laughs. Back to Morag, where Rhodey and Nebula are standing where we left them.]
 
-RHODEY: Okay, so, uhh... We just wait around for
+RHODEY: Okay, so, uhh... We just wait around for 
