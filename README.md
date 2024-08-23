@@ -870,4 +870,4 @@ BRUCE BANNER: What? I..I see this as an absolute win!
 
 [We cut to see Steve sitting outside the Avengers Compound, staring at the floor, deep in thought. He looks beat, the only possibility of victory now not an opportunity. He looks up as a deafening noise breaks the silence in the distance. As he looks, we see an Audi R8 speeding towards the entrance. The car pulls over to Cap, but goes a bit too far, then reverses to Cap. We see Tony Stark roll down the window and look at Cap.]
 
-TONY STARK: Why the long face? Let me guess: 
+TONY STARK: Why the long face? Let me guess: H
