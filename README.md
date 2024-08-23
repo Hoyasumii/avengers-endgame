@@ -398,4 +398,4 @@ ROCKET: What, you gonna get another haircut?
 
 CAROL DANVERS: [irritated] Listen fur-face, I'm covering a lot of territory. The things that are happening on Earth, are happening everywhere, on thousands of planets.
 
-ROCKET: [murmurs to himself] All right, all 
+ROCKET: [murmurs to himself] All right, all r
