@@ -1428,4 +1428,4 @@ NEBULA: [Looking around] Let's take cover. We're not the only ones in 2014 looki
 
 RHODEY: Wait a minute, what are you talking about right now? Who else is looking for these stones?
 
-NEBULA: My fath
+NEBULA: My fathe
