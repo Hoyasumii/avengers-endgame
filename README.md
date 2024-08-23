@@ -2744,4 +2744,4 @@ WONG: What, you wanted more?
 
 STEVE ROGERS: AVENGERS! [he summons Mjolnir] –assemble.
 
-[Thor makes a battle cry, as does Black Panther and the heroes charge, the
+[Thor makes a battle cry, as does Black Panther and the heroes charge, the 
