@@ -2736,4 +2736,4 @@ SAM WILSON: On your left.
 
 [Steve looks behind to see the portal on his left side. Three figures step through; Okoye, Shuri, and Black Panther, fully restored and ready to fight. Steve and the revived Wakandans share a look when Sam zooms in from above in his Falcon armor. As he does, we see dozens more portals opening up all around the battlefield. Through one of these, we see Doctor Strange descend in. He is joined by Drax, Mantis, Star Lord, and Spider-Man. Everyone watches in confusion and awe as more and more heroes arrive from all corners of the universe, all backed up with forces of their own including Black Panther and his Wakandan army, Valkyrie and the Asgardians, Wong and the Masters of the Mystic Arts and several Ravager ships. Amongst the throngs of heroes we see Bucky, Groot, the Scarlet Witch, the Wasp, and Pepper Potts (clad in her own iron suit) arrive. Nearly every hero has magically been transported to the battlefield to face Thanos' hordes.]
 
-DOCTOR STRANGE: Is that ev
+DOCTOR STRANGE: Is that eve
