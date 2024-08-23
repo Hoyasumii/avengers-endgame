@@ -2947,4 +2947,4 @@ PEPPER POTTS: Tony. Look at me. [She makes sure Tony gets a long look at her smi
 
 [With that acknowledgement, Tony's arc reactor flickers off for good. Pepper can no longer contain her grief and starts crying on his shoulder. Tony Stark, Iron Man, Earth's Best Defender, died. All the heroes gather, and kneel in honor of Tony.]
 
-[We cut to a montage showing reunions and celebrations. At Clint Barton's farm, he joyfully reunites with his family. At Peter Parker's school, Peter and Ned meet in the hall
+[We cut to a montage showing reunions and celebrations. At Clint Barton's farm, he joyfully reunites with his family. At Peter Parker's school, Peter and Ned meet in the hallw
