@@ -1906,4 +1906,4 @@ THOR: No, wait!
 
 ROCKET: [To Frigga] Wh- what am I looking at?
 
-FRIGGA (2013): Oh, so
+FRIGGA (2013): Oh, som
