@@ -638,4 +638,4 @@ BRUCE BANNER: 100%, little person. Come on, step up. [Holding out the phone to S
 
 SCOTT LANG: Oh, yeah.
 
-BRUCE BANNER: Thanks, [To the Children] Say "green"! [The childr
+BRUCE BANNER: Thanks, [To the Children] Say "green"! [The childre
