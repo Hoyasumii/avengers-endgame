@@ -1,1 +1,1 @@
-(The screen first panels up to an arr
+(The screen first panels up to an arro
