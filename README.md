@@ -2377,3 +2377,4 @@ CLINT BARTON: Okay. You win.
 CLINT BARTON: Tell my family I love them.
 
 [Natasha returns the favor by tackling Clint to the ground]
+
