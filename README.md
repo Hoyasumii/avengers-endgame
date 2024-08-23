@@ -78,4 +78,4 @@ TONY STARK: I lost the kid.
 
 STEVE ROGERS: Tony, we lost.
 
-TONY STARK: Is, uh..
+TONY STARK: Is, uh...
