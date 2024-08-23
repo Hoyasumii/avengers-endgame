@@ -3029,4 +3029,4 @@ THOR: Quail– you– that– that's your own–
 
 QUILL: Quail?
 
-THOR: –insecurities in ther
+THOR: –insecurities in there
