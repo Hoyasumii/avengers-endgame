@@ -1142,4 +1142,4 @@ BRUCE BANNER: [Disgusted] First of all, that's horrible...
 
 RHODEY: [In a tone that says it's what we're all thinking.] It's Thanos.
 
-BRUCE BANNER: ...And secondly, time doesn't work that way. Changing the past doesn't change t
+BRUCE BANNER: ...And secondly, time doesn't work that way. Changing the past doesn't change th
