@@ -446,4 +446,4 @@ STEVE ROGERS: And to see a friend.
 
 NATASHA ROMANOFF: Clearly, your friend is fine.
 
-STEVE ROGERS: You know I 
+STEVE ROGERS: You know I s
