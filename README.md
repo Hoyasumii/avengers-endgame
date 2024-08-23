@@ -348,4 +348,4 @@ Scott Lang: What the hell happened here?
 
 [The kid still stares at him and is almost about to tear up, but immediately turns away from him and move on. Lang still gives the same confused look, as he arrives in somewhat a memorial called "THE VANISHED", with all the names of the people who became victims of the Decimation. As Lang arrives on one of the engraved stones, he immediately drops the handle in shock.]
 
-Sco
+Scot
