@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being nocked into a bow. The archer behind 
+(The screen first panels up to an arrow being nocked into a bow. The archer behind f
