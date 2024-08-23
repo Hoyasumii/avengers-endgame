@@ -2266,4 +2266,4 @@ HOWARD STARK: Smart guy.
 
 TONY STARK: He did his best.
 
-HOWARD STARK: Let me te
+HOWARD STARK: Let me tel
