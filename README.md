@@ -1275,3 +1275,4 @@ TONY STARK: No. He lived in Toronto. Were you even paying attention?
 NATASHA ROMANOFF: Guys, if you pick the right year, there are three stones in New York.
 
 BRUCE BANNER: [Sitting up in surprise] Shut the front door.
+
