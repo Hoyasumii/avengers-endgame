@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being nocked into a bow. The arc
+(The screen first panels up to an arrow being nocked into a bow. The arch
