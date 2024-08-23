@@ -1730,4 +1730,4 @@ BRUCE BANNER: No, but we can erase it. Because once we are done with the stones,
 
 [Bruce's astral form takes the projection of the removed Time Stone, replaces it back amongst the other five, and the doomed alternate dimension fades away, illustrating his point.]
 
-THE ANCIENT ONE (2012): [still not convinced.] But you are leaving out the most important part. In or
+THE ANCIENT ONE (2012): [still not convinced.] But you are leaving out the most important part. In ord
