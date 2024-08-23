@@ -616,4 +616,4 @@ BRUCE BANNER: [seriously] These are confusing times.
 
 SCOTT LANG: Right. No, no, that's not what I meant.
 
-BRUCE BANNER: [droppi
+BRUCE BANNER: [droppin
