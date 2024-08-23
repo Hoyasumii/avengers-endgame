@@ -1080,4 +1080,4 @@ RONIN: [Raising his katana, in English] What I want... You can't give me.
 
 [He thrusts the blade downwards into Akihiko's stomach. The body of the Japanese falls to the ground. Ronin grabs the sword, and wipes it on his gauntlet, ridding it of the blood of Akihiko. He notices someone behind him, and grabs his mask, and slides it off his head, revealing himself as Clint Barton, who has gone on a rampage since the decimation. He turns around and looks at Nat, who is standing behind him, holding an umbrella, and in casual clothes.]
 
-CLINT
+CLINT 
