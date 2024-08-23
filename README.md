@@ -2258,4 +2258,4 @@ HOWARD STARK: My old man, he never met a problem he couldn't solve with a belt.
 
 TONY STARK: I thought my dad was tough on me. And now, looking back, I just remember the good stuff, you know. He did drop the odd pearl.
 
-HOWARD STARK: Yeah? Like
+HOWARD STARK: Yeah? Like 
