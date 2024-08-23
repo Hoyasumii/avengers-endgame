@@ -2256,4 +2256,4 @@ TONY STARK: I literally pieced it together as I went along, I thought about what
 
 HOWARD STARK: My old man, he never met a problem he couldn't solve with a belt.
 
-TONY STARK: I thought my dad was tough on me. And now, looking back, I just remembe
+TONY STARK: I thought my dad was tough on me. And now, looking back, I just remember
