@@ -2762,4 +2762,4 @@ PETER PARKER: What are you doing?
 
 PETER PARKER: Oh, this is nice.
 
-[Cut to Star-Lord Fighting a bunch of Sakaarans, killing all of them except one, which makes h
+[Cut to Star-Lord Fighting a bunch of Sakaarans, killing all of them except one, which makes hi
