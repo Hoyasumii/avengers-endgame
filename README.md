@@ -1204,4 +1204,4 @@ TONY STARK: Well I'd substitute the word encounter for damn well near been kille
 
 SCOTT LANG: I haven't, I don't even know what the hell you're all talking about.
 
-BRUCE BANNER: Regardless, we only have enough Pym Particles for one round trip each, and these stones have been in a lot of different p
+BRUCE BANNER: Regardless, we only have enough Pym Particles for one round trip each, and these stones have been in a lot of different pl
