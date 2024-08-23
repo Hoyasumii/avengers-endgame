@@ -2380,4 +2380,4 @@ CLINT BARTON: Tell my family I love them.
 
 NATASHA ROMANOFF: You tell them yourself.
 
-[Natasha electrocutes Clint and she run
+[Natasha electrocutes Clint and she runs
