@@ -27,3 +27,4 @@ LAURA BARTON: Mayo or mustard?
 NATHANIEL BARTON: How about ketchup?
 
 LAURA BARTON: Ketchup? [Camera switches back to Clint and his daughter] I can do ketchup.
+
