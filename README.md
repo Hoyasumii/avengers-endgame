@@ -3035,4 +3035,4 @@ QUILL: It's Quill.
 
 THOR: That's what I said.
 
-DRAX: You should fi
+DRAX: You should fig
