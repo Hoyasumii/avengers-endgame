@@ -964,4 +964,4 @@ ROCKET: No, I'm good. I'm good. That's not necessary.
 
 THOR: Hulk, you know my friends, Miek, Korg, right?
 
-[We see Miek and K
+[We see Miek and Ko
