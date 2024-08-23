@@ -1420,4 +1420,4 @@ NEBULA: The coordinates for Vormir are laid in. All they have to do is not fall 
 
 CLINT BARTON: It's a long way from Budapest.
 
-[Natasha just laughs. B
+[Natasha just laughs. Ba
