@@ -1452,4 +1452,4 @@ NEBULA (2014): Father's plan is finally in motion.
 
 GAMORA (2014): One stone isn't six, Nebula.
 
-NEBUL
+NEBULA
