@@ -94,4 +94,4 @@ TONY STARK: Where is he now? Where?
 
 STEVE ROGERS: We don't know. He just opened a portal and walked through.
 
-[Cut to a shot of a sullen-looking Thor, sitting on a bench, seemingly deep in
+[Cut to a shot of a sullen-looking Thor, sitting on a bench, seemingly deep in 
