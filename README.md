@@ -212,4 +212,4 @@ NATASHA ROMANOFF: Even if there's a small chance that we can undo this... I mean
 
 BRUCE BANNER: If we do this, how do we know it's gonna end any differently than it did before?
 
-CAROL DANVERS: Because before, y
+CAROL DANVERS: Because before, yo
