@@ -1398,4 +1398,4 @@ RHODEY: All that, is really helpful. [Hugging Natasha] Take care, okay?
 
 NATASHA ROMANOFF: Yeah.
 
-RHODEY: Take that stone a
+RHODEY: Take that stone an
