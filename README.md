@@ -2308,4 +2308,4 @@ RED SKULL (2014): Welcome.
 
 RED SKULL (2014): Natasha, daughter of Ivan. Clint, son of Edith.
 
-NATASHA ROMANOFF: Who are
+NATASHA ROMANOFF: Who are 
