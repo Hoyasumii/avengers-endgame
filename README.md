@@ -16,4 +16,4 @@ LAURA BARTON: Hey, you guys want mayo or mustard, or both? [Camera switches to L
 
 LILA BARTON: Who wants mayo on a hotdog?
 
-CLINT BARTON: Probably your
+CLINT BARTON: Probably your 
