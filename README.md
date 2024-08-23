@@ -3127,4 +3127,4 @@ BRUCE BANNER: Hey, I said, I'm trying!
 
 BUCKY BARNES: Sam...
 
-[Sam walks toward Bucky. Sam, Bu
+[Sam walks toward Bucky. Sam, Buc
