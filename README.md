@@ -2917,4 +2917,4 @@ TONY STARK: And I– am– Iron Man.
 
 [Tony snaps his fingers with a loud "CLANG" and a blinding flash of white. Rocket fires at a Leviathan and before it devours him, it crumbles into ash. The Black Order starts crumbling to ash. T'Challa and Quill look around in surprise; Steve looks on in exhaustion, knowing that they have won. Thanos, in horror, looks around and sees his entire army disintegrate. He looks at Steve, who just stares at him. Thanos sits down and mourns before slowly being erased from existence himself.]
 
-[Cut back to Tony. The power of the gauntlet raw energy has left his entire right side fatally injured. He stumbles for a bit before 
+[Cut back to Tony. The power of the gauntlet raw energy has left his entire right side fatally injured. He stumbles for a bit before h
