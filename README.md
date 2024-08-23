@@ -2302,4 +2302,4 @@ NATASHA ROMANOFF: I bet the raccoon didn't have to climb a mountain. CLINT BARTO
 
 NATASHA ROMANOFF: Whatever. He eats garbage.
 
-RED SKULL (2014): Wel
+RED SKULL (2014): Welc
