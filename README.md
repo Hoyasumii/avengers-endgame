@@ -176,4 +176,4 @@ CAROL DANVERS: To kill Thanos.
 
 [Steve and Natasha share a look before walking after her.]
 
-NATASHA ROMANOFF: Hey, you know, we usually wor
+NATASHA ROMANOFF: Hey, you know, we usually work
