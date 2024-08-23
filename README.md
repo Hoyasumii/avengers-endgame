@@ -1490,4 +1490,4 @@ GAMORA (2014): Her synaptic drive was probably damaged in battle.
 
 THANOS (2014): Shhh... (pointing to Nebula) Bring her to my ship.
 
-[Cut to present Tony Stark flying around Stark Tower in the Mark 85. He sca
+[Cut to present Tony Stark flying around Stark Tower in the Mark 85. He scan
