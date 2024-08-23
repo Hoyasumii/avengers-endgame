@@ -2837,4 +2837,4 @@ EBONY MAW (2014): [pointing.] Sire!
 
 T'CHALLA: Clint! Give it to me.
 
-[Clint gives the Gauntlet to T'Challa, and he runs towards the van while fighting Thanos' army. Eventually he is stopped by the double edged sword, boomeranged by Thanos. When it gets back to him, he ch
+[Clint gives the Gauntlet to T'Challa, and he runs towards the van while fighting Thanos' army. Eventually he is stopped by the double edged sword, boomeranged by Thanos. When it gets back to him, he cha
