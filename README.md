@@ -1732,4 +1732,4 @@ BRUCE BANNER: No, but we can erase it. Because once we are done with the stones,
 
 THE ANCIENT ONE (2012): [still not convinced.] But you are leaving out the most important part. In order to return the stones, you have to survive.
 
-BRU
+BRUC
