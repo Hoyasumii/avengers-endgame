@@ -2528,4 +2528,4 @@ BRUCE ROGERS: [Bruce holds onto Steve's arm] Did it work?
 
 THOR: Worth a shot. It's over. It's okay.
 
-[Scott walks towards th
+[Scott walks towards the
