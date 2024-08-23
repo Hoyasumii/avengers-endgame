@@ -1314,4 +1314,4 @@ BRUCE BANNER: I think it's gratuitous, but whatever.
 
 [Shot cuts to the Roof of the Sanctum Sanctorum where 2012 The Ancient One protects it. Bruce tries to enter through the roof before noticing her.]
 
-THE ANCIENT ONE (2012): I'd be careful going
+THE ANCIENT ONE (2012): I'd be careful going 
