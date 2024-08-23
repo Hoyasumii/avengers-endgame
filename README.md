@@ -778,4 +778,4 @@ PEPPER POTTS: But would you be able to rest?
 
 [Cut to a lab in the Avengers Compound, we see Bruce fiddling with buttons on a panel. Scott is in his Ant-Man costume in front of his van, with the back open to show the Quantum Tunnel. Nat and Steve are beside Bruce]
 
-BRUCE BANNER: Ok
+BRUCE BANNER: Oka
