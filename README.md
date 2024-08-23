@@ -1478,4 +1478,4 @@ RHODEY (Memory): We just, wait around for this Quill guy to show up, and then he
 
 NEBULA (Memory): Let's take cover. We're not the only ones in 2014 looking for the stones.
 
-[Nebula (
+[Nebula (2
