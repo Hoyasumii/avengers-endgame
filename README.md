@@ -1928,4 +1928,4 @@ NEBULA: Yeah.
 
 [Rhodey knocks out Quill and Nebula rummages around to take Quill's tool.]
 
-RHODEY: What's th
+RHODEY: What's tha
