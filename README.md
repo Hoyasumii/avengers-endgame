@@ -836,4 +836,4 @@ STEVE ROGERS: Yeah yeah. Can you bring him back?
 
 BRUCE BANNER: I'm working on it! [Tapping the side of the button pad, trying to pull back Scott]
 
-[After a moment, another person appears in front of them. This time, it's a baby in the Ant-Man suit.
+[After a moment, another person appears in front of them. This time, it's a baby in the Ant-Man suit.]
