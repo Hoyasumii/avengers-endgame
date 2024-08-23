@@ -182,4 +182,4 @@ STEVE ROGERS: We realize up there is more your territory, but this is our fight 
 
 RHODEY: You even know where he is?
 
-CAROL DANVERS: I know peopl
+CAROL DANVERS: I know people
