@@ -2284,4 +2284,4 @@ NEBULA: I'm you.
 
 [Nebula (2014) throws a punch straight at Present Nebula. Gamora (2014) walks into the room.]
 
-NEBULA: You can stop t
+NEBULA: You can stop th
