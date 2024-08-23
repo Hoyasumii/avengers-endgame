@@ -88,4 +88,4 @@ TONY STARK: It's okay.
 
 JAMES RHODES: It's been 23 days since Thanos came to Earth.
 
-NATASHA ROMANOFF: World governments are in pieces. The parts that are still working are tryin
+NATASHA ROMANOFF: World governments are in pieces. The parts that are still working are trying
