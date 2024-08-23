@@ -2594,4 +2594,4 @@ THANOS (2014): The arrogant never do.
 
 THANOS (2014): Go. Find the stones. Bring them to me.
 
-NEBULA (2
+NEBULA (20
