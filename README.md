@@ -561,3 +561,4 @@ SCOTT LANG: (Trying to hide his pride) A time heist?
 TONY STARK: Yeah, a time heist. Of course, why didn't we think of this before? Oh, because it's laughable? Because it's a pipedream?
 
 SCOTT LANG: The Stones are in the past. We can go back and get them.
+
