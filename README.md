@@ -2486,4 +2486,4 @@ BRUCE BANNER: You saw what those stones did to Thanos. It almost killed him. Non
 
 STEVE ROGERS: How do we know you will?
 
-BRUCE BAN
+BRUCE BANN
