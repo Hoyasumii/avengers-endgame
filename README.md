@@ -32,4 +32,4 @@ CLINT BARTON: Mind your elbow. [Lila releases the arrow and it hits the target d
 
 LAURA BARTON: Hey guys! Enough practice, soup's on!
 
-CLINT BARTON: Alright, we're coming; we're hungry. [Clint looks behind him, but there's no one there, but dust being blown away by the wind.] Lila, let's go. [Clint starts to look around] Lila? [Clint starts to move and look around, and pick up the bow she had.] 
+CLINT BARTON: Alright, we're coming; we're hungry. [Clint looks behind him, but there's no one there, but dust being blown away by the wind.] Lila, let's go. [Clint starts to look around] Lila? [Clint starts to move and look around, and pick up the bow she had.] H
