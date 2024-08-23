@@ -310,4 +310,4 @@ YEARS
 
 LATER
 
-[We see shots of New York City, seemingly abandoned. There are a lot of boats gath
+[We see shots of New York City, seemingly abandoned. There are a lot of boats gathe
