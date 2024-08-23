@@ -266,4 +266,4 @@ NEBULA: And that's enough.
 
 ROCKET: Oh no.
 
-STEVE ROGERS: Where ar
+STEVE ROGERS: Where are
