@@ -2678,4 +2678,4 @@ GAMORA (2014): Stop.
 
 [Gamora (2014) come around the corner]
 
-NEBULA (2014): You're betraying u
+NEBULA (2014): You're betraying us
