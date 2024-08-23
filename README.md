@@ -1888,4 +1888,4 @@ ROCKET: Hey. You must be Mom. I got the thing. Come on, we got to move.
 
 THOR: I wish we had more time.
 
-FRIGGA (2013): No, this was a gift. And you're going to be the man 
+FRIGGA (2013): No, this was a gift. And you're going to be the man y
