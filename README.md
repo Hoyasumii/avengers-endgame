@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being nocked in
+(The screen first panels up to an arrow being nocked int
