@@ -52,4 +52,4 @@ TONY STARK: We're tied up. Feel the tension? It's fun.
 
 [Tony poorly flicks a paper football towards Nebula]
 
-TONY STARK: That wa
+TONY STARK: That was
