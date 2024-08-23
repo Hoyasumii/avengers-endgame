@@ -2306,4 +2306,4 @@ RED SKULL (2014): Welcome.
 
 [Natasha and Clint draws their weapons.]
 
-RED SKULL (
+RED SKULL (2
