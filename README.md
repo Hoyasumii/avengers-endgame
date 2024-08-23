@@ -784,4 +784,4 @@ BRUCE BANNER: Okay, here we go. Time travel test number one. Scott, fire up the 
 
 STEVE ROGERS: Breakers are set, emergency generators are on standby.
 
-BRUCE BANNER: Good. 'Cause if we blow the grid, I 
+BRUCE BANNER: Good. 'Cause if we blow the grid, I d
