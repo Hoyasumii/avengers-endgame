@@ -456,4 +456,4 @@ NATASHA ROMANOFF: You know, if you're about to tell me to look on the bright sid
 
 STEVE ROGERS: Sorry. Force of habit. [Throws his jacket, then sits down on another chair, opposite Natasha.]
 
-STEVE ROGERS: You know, I keep telling everybody t
+STEVE ROGERS: You know, I keep telling everybody th
