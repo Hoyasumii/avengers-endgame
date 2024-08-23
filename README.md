@@ -230,4 +230,4 @@ STEVE ROGERS: Let's go get this son of a bitch.
 
 ROCKET: Okay, who here hasn't been to space?
 
-[Nat, Cap, and Rhodey raise their hands.
+[Nat, Cap, and Rhodey raise their hands.]
