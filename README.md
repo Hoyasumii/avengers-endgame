@@ -916,4 +916,4 @@ SCOTT LANG: Oh, God!
 
 RHODEY: What's up, regular sized man?
 
-[As Rhodey walks away, Bruce walks out of the Compound. Seeing that Scott dropped his lunch, he han
+[As Rhodey walks away, Bruce walks out of the Compound. Seeing that Scott dropped his lunch, he hand
