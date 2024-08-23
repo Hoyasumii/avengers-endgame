@@ -676,4 +676,4 @@ STEVE ROGERS: Bruce.
 
 BRUCE BANNER: Listen to your Mom. She knows better.
 
-STE
+STEV
