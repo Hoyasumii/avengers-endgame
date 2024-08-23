@@ -1500,4 +1500,4 @@ LOKI (2012): If it's all the same to you... I'll have that drink now.
 
 TONY STARK (2012): All right, get him on his feet. We can all stand around posing up a storm later. By the way, feel free to clean up.
 
-TONY ST
+TONY STA
