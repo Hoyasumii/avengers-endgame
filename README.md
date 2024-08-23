@@ -2630,4 +2630,4 @@ THOR: Absolutely nothing.
 
 STEVE ROGERS: Where are the stones?
 
-TONY STARK: Somewhere under all this. All I k
+TONY STARK: Somewhere under all this. All I kn
