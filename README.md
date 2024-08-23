@@ -418,4 +418,4 @@ CAROL DANVERS: [To Rhodey] Good luck. [cuts off call]
 
 NATASHA ROMANOFF: Where are you?
 
-RHODEY: Mexico. The Federales found a room full of bodies. Looks like a bun
+RHODEY: Mexico. The Federales found a room full of bodies. Looks like a bunc
