@@ -1798,4 +1798,4 @@ GAMORA (2014): Terrans.
 
 THANOS (2014): Avengers. Unruly wretches. What's that reflection? Amplify this, Maw.
 
-GAMORA (2014): [Looking at a reflection of Nebul
+GAMORA (2014): [Looking at a reflection of Nebula
