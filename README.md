@@ -1432,4 +1432,4 @@ NEBULA: My father, my sister... and me.
 
 RHODEY: And you? Where are you right now?
 
-[Cuts to a scene of Gamora (2014) and Nebul
+[Cuts to a scene of Gamora (2014) and Nebula
