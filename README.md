@@ -2318,4 +2318,4 @@ RED SKULL (2014): Ah, liebchen– If only it were that easy.
 
 [Red Skull leads Clint and Natasha to the cliff]
 
-RED SKULL (2014): What you seek lies in front of you... as does what
+RED SKULL (2014): What you seek lies in front of you... as does what 
