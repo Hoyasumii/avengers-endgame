@@ -2714,4 +2714,4 @@ F.R.I.D.A.Y: Boss, wake up!
 
 THOR: I knew it!
 
-[Thanos' (2014) kicks Thor to the ground and proceed to battle Steve dual wielding
+[Thanos' (2014) kicks Thor to the ground and proceed to battle Steve dual wielding 
