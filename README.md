@@ -2580,4 +2580,4 @@ THANOS (2014): Daughter.
 
 NEBULA (2014): Yes, Father.
 
-THANOS (
+THANOS (2
