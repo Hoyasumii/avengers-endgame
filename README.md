@@ -2507,3 +2507,4 @@ F.R.I.D.A.Y.: Yes, boss.
 [Avengers facility goes on lockdown]
 
 BRUCE BANNER: Everybody comes home.
+
