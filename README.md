@@ -1816,4 +1816,4 @@ FRIGGA (2013): Aah!!!
 
 THOR: OH, God!
 
-FRIGGA (2013): Y
+FRIGGA (2013): Yo
