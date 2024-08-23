@@ -2614,4 +2614,4 @@ GAMORA (2014): Come on. We can stop him.
 
 [Nebula takes it]
 
-[Scene cuts to Tony walking t
+[Scene cuts to Tony walking to
