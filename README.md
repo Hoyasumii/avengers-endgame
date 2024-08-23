@@ -2837,4 +2837,4 @@ EBONY MAW (2014): [pointing.] Sire!
 
 T'CHALLA: Clint! Give it to me.
 
-[Clint gives 
+[Clint gives t
