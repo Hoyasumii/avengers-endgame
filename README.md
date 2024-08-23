@@ -1514,3 +1514,4 @@ TONY STARK (2012): STRIKE team's coming to secure it.
 
 [A Hydra team including Rumlow and Sitwell enter, known at this time as a part of SHIELD.]
 
+S
