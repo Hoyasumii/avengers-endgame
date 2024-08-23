@@ -2494,4 +2494,4 @@ TONY STARK: Good to go, yeah?
 
 BRUCE BANNER: Let's do it.
 
-TONY STARK: You remember– everyone Thanos snapped away five years ago and just bringing them ba
+TONY STARK: You remember– everyone Thanos snapped away five years ago and just bringing them bac
