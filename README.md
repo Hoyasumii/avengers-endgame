@@ -1946,4 +1946,4 @@ RHODEY: Okay. All right. Go ahead.
 
 [Nebula forces her hand inside the force field protecting The Orb while it melts away the exterior plating on her arm. She successfully retrieves The Orb and hands it to Rhodey all the while Rhodey watched the whole thing happened.]
 
-NEBULA: I
+NEBULA: I 
