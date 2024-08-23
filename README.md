@@ -2006,4 +2006,4 @@ EBONY MAW (2014): ...is a traitor.
 
 NEBULA (2014): That's not me. It's not. I could never... I would never betray you. Never.
 
-[Thanos (2014) releases the chain around Nebula (2014) neck and holds 
+[Thanos (2014) releases the chain around Nebula (2014) neck and holds h
