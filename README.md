@@ -270,4 +270,4 @@ STEVE ROGERS: Where are they?
 
 CAROL DANVERS: Answer the question!
 
-THANOS: The universe required correction. After that, the ston
+THANOS: The universe required correction. After that, the stone
