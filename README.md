@@ -616,4 +616,4 @@ BRUCE BANNER: [seriously] These are confusing times.
 
 SCOTT LANG: Right. No, no, that's not what I meant.
 
-BRUCE BANNER: [dropping the act] No, I get i
+BRUCE BANNER: [dropping the act] No, I get it
