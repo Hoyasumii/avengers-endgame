@@ -718,4 +718,4 @@ TONY STARK: 'Cause I got some important shit going on here. [Morgan gives Tony a
 
 MORGAN STARK: Was it Juice Pops?
 
-TONY STARK: Sure was. That's extortion. Great minds think alike. Juice Pops, exactly was on... [Looks back to the model, Then turn
+TONY STARK: Sure was. That's extortion. Great minds think alike. Juice Pops, exactly was on... [Looks back to the model, Then turns
