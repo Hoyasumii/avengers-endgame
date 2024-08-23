@@ -1532,4 +1532,4 @@ TONY STARK: You're small, but you're talking loud.
 
 STEVE ROGERS (2012): On my way down to coordinate search and rescue.
 
-LOKI (2012): [Transforming into Steve for a second in imitation] On my way down to coordinate search and re
+LOKI (2012): [Transforming into Steve for a second in imitation] On my way down to coordinate search and res
