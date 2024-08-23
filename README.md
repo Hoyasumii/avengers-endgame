@@ -1268,4 +1268,4 @@ TONY STARK: Yeah. Sullivan Street.
 
 BRUCE BANNER: Hmm... Bleecker.
 
-NATASHA ROMANOFF: Wait, he lived i
+NATASHA ROMANOFF: Wait, he lived in
