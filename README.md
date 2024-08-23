@@ -2236,4 +2236,4 @@ SECURITY OFFICER: Hippie? Like Bee Gees or Mungo Jerry?
 
 ELEVATOR LADY: Definitely Mungo Jerry.
 
-SECURITY OFFICER: Yeah, this is Chesler. I need every available MPs on sub-level 6. We h
+SECURITY OFFICER: Yeah, this is Chesler. I need every available MPs on sub-level 6. We ha
