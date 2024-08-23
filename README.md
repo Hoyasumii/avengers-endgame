@@ -590,4 +590,4 @@ TONY STARK: That's right, Scott, I won't even. I got a kid.
 
 MORGAN STARK: Mommy told me to come and save you.
 
-TONY STARK: Good job. I'm saved. [Turning to face Cap, Nat and Scott.] I wish you'd come here to ask me something else. Anything else. Hon
+TONY STARK: Good job. I'm saved. [Turning to face Cap, Nat and Scott.] I wish you'd come here to ask me something else. Anything else. Hone
