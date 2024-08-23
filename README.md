@@ -1418,4 +1418,4 @@ NEBULA: The coordinates for Vormir are laid in. All they have to do is not fall 
 
 [In the Benatar, Clint and Nat are sitting at the front of the ship. The ship takes a jump through space and speeds up tremendously. Nat and Clint look at each other.]
 
-CLINT BARTON: It's a long way from B
+CLINT BARTON: It's a long way from Bu
