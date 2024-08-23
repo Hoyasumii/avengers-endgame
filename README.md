@@ -498,4 +498,4 @@ SCOTT LANG: Yeah, but that's just it. It wasn't. For me, it was five hours.
 
 [Steve and Nat share a quick bewildered glance.]
 
-SCOTT LANG: See, the 
+SCOTT LANG: See, the r
