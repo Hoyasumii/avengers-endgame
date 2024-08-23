@@ -584,4 +584,4 @@ TONY STARK: We did stand. And yet, here we are.
 
 SCOTT LANG: I know you got a lot on the line. You got a wife, a daughter. But I lost someone very important to me. A lot of people did. [His voice gets louder as he tries to sell his desperation to Tony.] And now, now we have a chance to bring her back. To bring everyone back. And you're telling me that won't even...
 
-TONY STARK: That's right, Sc
+TONY STARK: That's right, Sco
