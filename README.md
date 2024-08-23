@@ -2601,3 +2601,4 @@ THANOS (2014): Wait.
 [Nebula (2014) proceeds to go find the stones and the camera pans over the Sanctuary II and we see Gamora (2014) watching. Gamora (2014) heads over to where Nebula is being held prisoner.]
 
 GAMORA (2014): Tell me something. In the future, what happens to you and me?
+
