@@ -2106,4 +2106,4 @@ STEVE ROGERS: Here we go.
 
 [Cut to Steve and Tony in New Jersey, 1970]
 
-OUR WATCHER INFORMANT, S
+OUR WATCHER INFORMANT, ST
