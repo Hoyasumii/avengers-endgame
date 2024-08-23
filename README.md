@@ -2274,4 +2274,4 @@ HOWARD STARK: Jarvis, have we ever met that guy?
 
 EDWIN JARVIS: You meet a lot of people, sir.
 
-HOWARD STARK: Seems very familiar. Wei
+HOWARD STARK: Seems very familiar. Weir
