@@ -2861,4 +2861,4 @@ THANOS (2014): Rain fire!
 
 CORVUS GLAIVE: But sire, our troops!
 
-THANOS (2014): Just do it
+THANOS (2014): Just do it!
