@@ -2362,4 +2362,4 @@ CLINT BARTON: Yeah, well, I don't want you to, because I– Natasha, you know wh
 
 NATASHA ROMANOFF: I don't judge people on their worst mistakes.
 
-CLINT BARTON: Maybe
+CLINT BARTON: Maybe 
