@@ -2997,4 +2997,4 @@ THOR: No, they already have one.
 
 VALKYRIE: That's funny. You're being serious?
 
-[Thor nods hi
+[Thor nods his
