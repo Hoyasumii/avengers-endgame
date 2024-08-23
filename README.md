@@ -2200,4 +2200,4 @@ CAPTAIN STEVENS (STEVE ROGERS): Yeah, they did. You better get down here.
 
 HANK PYM: Excuse me! Out of the way!
 
-[cut back to Howard 
+[cut back to Howard a
