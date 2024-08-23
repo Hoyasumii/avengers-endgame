@@ -820,4 +820,4 @@ NATASHA ROMANOFF: That...who is that?
 
 BRUCE BANNER: Hold on. [Panicking]
 
-NATASHA ROMANOFF: Is
+NATASHA ROMANOFF: Is 
