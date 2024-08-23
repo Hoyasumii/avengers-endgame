@@ -2002,4 +2002,4 @@ EBONY MAW (2014): [Dangerous voice.] Sire, your Daughter...
 
 NEBULA (2014): No!
 
-EBONY MAW (2014): ...is a t
+EBONY MAW (2014): ...is a tr
