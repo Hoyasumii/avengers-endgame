@@ -2867,4 +2867,4 @@ THANOS (2014): Just do it!
 
 PEPPER POTTS: Uh, is anyone else seeing this?
 
-[Doctor Strange looks at the broken dam and uses his magic to stop the water from flooding the b
+[Doctor Strange looks at the broken dam and uses his magic to stop the water from flooding the ba
