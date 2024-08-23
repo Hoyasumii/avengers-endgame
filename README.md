@@ -3035,4 +3035,4 @@ QUILL: It's Quill.
 
 THOR: That's what I said.
 
-DRAX: You sho
+DRAX: You shou
