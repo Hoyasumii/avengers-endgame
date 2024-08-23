@@ -1364,4 +1364,4 @@ ROCKET: Come here. Right here.
 
 [Rocket slaps Thor in the face.]
 
-ROCKET: You think you're the only one who lost people? What do you think we're doing here? I lost the only family I ever had. Quill, Groot, Drax, the chick with the antenna, all gone. Now, I get you miss your Mom. But she's gone. Really gone. And there are pl
+ROCKET: You think you're the only one who lost people? What do you think we're doing here? I lost the only family I ever had. Quill, Groot, Drax, the chick with the antenna, all gone. Now, I get you miss your Mom. But she's gone. Really gone. And there are ple
