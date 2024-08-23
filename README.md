@@ -2750,4 +2750,4 @@ STEVE ROGERS: AVENGERS! [he summons Mjolnir] –assemble.
 
 THOR: No, no, give me that. You have the little one. [best meme ever]
 
-[Later, Tony is seen fighting some of Thanos' army. Cull Obsidian backhands him, sending him to the ground, but Spider-Man uses his webs to pull him to the ground, allowing Gian
+[Later, Tony is seen fighting some of Thanos' army. Cull Obsidian backhands him, sending him to the ground, but Spider-Man uses his webs to pull him to the ground, allowing Giant
