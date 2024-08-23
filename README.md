@@ -2831,4 +2831,4 @@ THANOS (2014): Where's Nebula?
 
 CORVUS GLAIVE: She's not responding.
 
-EBONY MAW (2
+EBONY MAW (20
