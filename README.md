@@ -650,4 +650,4 @@ BRUCE BANNER: Wait, no, no, he feels bad. No, he wants you to...he wants to...[t
 
 BOY: Stranger Danger.
 
-SCOTT LANG: He's even saying no he d
+SCOTT LANG: He's even saying no he do
