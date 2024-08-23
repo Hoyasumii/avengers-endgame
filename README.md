@@ -607,3 +607,4 @@ STEVE ROGERS: No, I wanna do it right. We're gonna need a really big brain.
 SCOTT LANG: (Incredulous, pointing to Tony's house) Bigger than his?
 
 [Cut to a cafe somewhere, we see Bruce Banner, but not the same one that we remember. He looks more... Professor Smart Hulk.]
+
