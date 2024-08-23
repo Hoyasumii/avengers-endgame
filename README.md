@@ -1242,3 +1242,4 @@ ROCKET: Oh, look. It's like a little puppy, all happy and everything. [Imitating
 
 [Cut to everyone facing Nebula in the planning room, and Nat writing notes for their plan.]
 
+N
