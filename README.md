@@ -1126,4 +1126,4 @@ SCOTT LANG: Sorry. We've got enough for one round trip each. That's it. No do-ov
 
 [Cut to the testing chamber, where we see Steve, Nat, Tony, Scott, Bruce, Rhodey and Nebula standing at a control panel, presumably controlling the glass platform.]
 
-SCOTT LANG: All right. I
+SCOTT LANG: All right. I'
