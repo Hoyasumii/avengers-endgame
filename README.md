@@ -380,4 +380,4 @@ ROCKET: So, thanks for the hot tip. [turns to Danvers and replies back with a sm
 
 CAROL DANVERS: Well, you were closer.
 
-ROCKET: Yeah. And
+ROCKET: Yeah. And 
