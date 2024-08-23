@@ -1182,4 +1182,4 @@ BRUCE BANNER: [Turning to Clint] Alright, Clint. We're going in 3... 2... 1!
 
 LILA BARTON: [offscreen] Cooper? Where are my headphones?
 
-CLINT BARTON: [murmuring] Lila? [The device on his hand starts beeping, signalling the end of this visit] Lila! [He dives for the door, but only manages to open it before he shrinks back to go back 
+CLINT BARTON: [murmuring] Lila? [The device on his hand starts beeping, signalling the end of this visit] Lila! [He dives for the door, but only manages to open it before he shrinks back to go back t
