@@ -1716,4 +1716,4 @@ STEVE ROGERS: That is America's ass.
 
 [Scene cuts back to Bruce and The Ancient One (2012). As Hulk is lying down on a beach chair who looks like he's sleeping with a hat on, Bruce Banner tries reasoning with the Ancient One to let him have the Time Stone.]
 
-BRUCE BANNER: Pl
+BRUCE BANNER: Ple
