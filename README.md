@@ -2770,4 +2770,4 @@ PETER QUILL: Gamora? [Peter slowly approaches Gamora (2014)] I thought I lost yo
 
 PETER QUILL: Ow.
 
-GAMORA (2014): [Kicks Peter in the nuts, slightly hurting Peter] Don't– touc
+GAMORA (2014): [Kicks Peter in the nuts, slightly hurting Peter] Don't– touch
