@@ -1070,4 +1070,4 @@ AKIHIKO: [Japanese]俺らがだと? 気でも狂ったか! (Orera ga dato? Ki de
 
 [He lowers down his sword as if he is about to surrender, but charges again at Ronin. Both swords clashed as Ronin slices his stomach, losing stamina, but gaining more strength from his rage.]
 
-AKIHIKO: [i
+AKIHIKO: [in
