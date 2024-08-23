@@ -1441,3 +1441,4 @@ NEBULA (2014): I didn't ask for your help.
 GAMORA (2014): And yet, you always need it. [Nebula (2014) laughs and Gamora's hand.] Get up. Father wants us back on the ship.
 
 NEBULA (2014): Why?
+
