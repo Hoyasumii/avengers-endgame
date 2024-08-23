@@ -674,4 +674,4 @@ BRUCE BANNER: [Awkwardly] Dab!
 
 STEVE ROGERS: Bruce.
 
-BRUCE BANNER: Listen to your Mom. She knows b
+BRUCE BANNER: Listen to your Mom. She knows be
