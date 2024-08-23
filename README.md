@@ -392,4 +392,4 @@ OKOYE: Nat, it's an earthquake under the ocean. We handle it by not handling it.
 
 NATASHA ROMANOFF: [turns to Danvers] Carol, are we seeing you here next month?
 
-CAROL DANVERS
+CAROL DANVERS:
