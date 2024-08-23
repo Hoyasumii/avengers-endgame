@@ -3173,4 +3173,4 @@ Sam Wilson: [seeing elderly Steve's wedding ring] You wanna tell me about her?
 
 (OLD) STEVE ROGERS: [smiling] No. No, I don't think I will. [Last lines]
 
-[In the final scenes, Steve has time traveled back to the 1940s to be with Peggy Carter. They are seen dancing to "It's Been a Long, Lo
+[In the final scenes, Steve has time traveled back to the 1940s to be with Peggy Carter. They are seen dancing to "It's Been a Long, Lon
