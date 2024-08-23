@@ -1834,3 +1834,4 @@ FRIGGA (2013): You're not the Thor I know at all, are you?
 
 THOR: [Pretending] Yes, I am.
 
+F
