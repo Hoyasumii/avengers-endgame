@@ -2,4 +2,4 @@
 
 CLINT BARTON: How about now?
 
-[Both Lila and Clint giggle, as the 
+[Both Lila and Clint giggle, as the c
