@@ -1176,4 +1176,4 @@ SCOTT LANG: So... Back To The Future's a bunch of bullshit?
 
 BRUCE BANNER: [Turning to Clint] Alright, Clint. We're going in 3... 2... 1!
 
-[A helmet similar to Ant-Man's but white and more visible face pops on Clint's head, and he goes quantum. Clint flies through the quantum realm and into an opening. He grows back to normal size, but he's at a different pl
+[A helmet similar to Ant-Man's but white and more visible face pops on Clint's head, and he goes quantum. Clint flies through the quantum realm and into an opening. He grows back to normal size, but he's at a different pla
