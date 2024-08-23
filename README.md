@@ -1238,4 +1238,4 @@ ROCKET: Morag's a planet. Quill was a person.
 
 SCOTT LANG: A planet? Like in outer space?
 
-ROCKET: Oh, look. It's like a little puppy, all happy and everything. [Imitating talking to a p
+ROCKET: Oh, look. It's like a little puppy, all happy and everything. [Imitating talking to a pu
