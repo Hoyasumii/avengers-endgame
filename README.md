@@ -384,4 +384,4 @@ ROCKET: Yeah. And now we smell like garbage.
 
 NATASHA ROMANOFF: [turns to Okoye] You get a reading on those tremors?
 
-OKOYE: It was a mild subduction und
+OKOYE: It was a mild subduction unde
