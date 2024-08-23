@@ -1970,4 +1970,4 @@ BRUCE (Memory): You used them two days ago.
 
 THANOS (Memory): I used the stones to destroy the stones. It nearly killed me. But the work is done. It always will be. I am inevitable.
 
-[Memory pa
+[Memory pau
