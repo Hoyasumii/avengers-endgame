@@ -112,4 +112,4 @@ STEVE ROGERS: Okay.
 
 TONY STARK: He's unbeatable.
 
-STEVE ROGERS: Did he give you any clues, any coordi
+STEVE ROGERS: Did he give you any clues, any coordin
