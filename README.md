@@ -3081,4 +3081,4 @@ STEVE ROGERS: You're a good man, Sam. This one's on me, though.
 
 [Steve goes over to Bucky]
 
-STEVE ROGERS: Don't do anything stupid 
+STEVE ROGERS: Don't do anything stupid '
