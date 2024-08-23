@@ -362,4 +362,4 @@ Scott Lang: What?
 
 SCOTT LANG: Cassie?
 
-CASSIE LANG: Dad? [Both of them emotionally hug each other a
+CASSIE LANG: Dad? [Both of them emotionally hug each other as
