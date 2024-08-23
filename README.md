@@ -2008,4 +2008,4 @@ NEBULA (2014): That's not me. It's not. I could never... I would never betray yo
 
 [Thanos (2014) releases the chain around Nebula (2014) neck and holds her head in his palm]
 
-THANOS (2014): I know. And you'll have the chance to prove i
+THANOS (2014): I know. And you'll have the chance to prove it
