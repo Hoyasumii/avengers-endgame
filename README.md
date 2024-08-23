@@ -1940,4 +1940,4 @@ NEBULA: What are you talking about?
 
 RHODEY: When you break into a place called the temple of the Power Stone, There's gonna be a bunch of booby traps–
 
-[Nebula just shakes her h
+[Nebula just shakes her he
