@@ -2366,4 +2366,4 @@ CLINT BARTON: Maybe you should.
 
 NATASHA ROMANOFF: You didn't.
 
-CLINT BARTON: You're a pain 
+CLINT BARTON: You're a pain i
