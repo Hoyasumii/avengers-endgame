@@ -1562,4 +1562,4 @@ TONY STARK: All right, Cap. I got our scepter in the elevator just passing the 8
 
 STEVE ROGERS: On it. Head to the lobby.
 
-TONY STARK: Alright.
+TONY STARK: Alright. 
