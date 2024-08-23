@@ -1002,4 +1002,4 @@ BRUCE BANNER: We need your help. There might be a chance we could fix everything
 
 THOR: What, like the cable? [burps] Cause that's been driving me bananas for weeks.
 
-BRUCE BANNER: Like Th
+BRUCE BANNER: Like Tha
