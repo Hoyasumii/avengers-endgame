@@ -234,4 +234,4 @@ ROCKET: Okay, who here hasn't been to space?
 
 RHODEY: Why?
 
-ROCKET: You better no
+ROCKET: You better not
