@@ -2881,3 +2881,4 @@ PETER PARKER: Hey! Nice to meet you– OH, MY GOD!
 
 [The cannons knock Peter Parker off the Pegasus, then they turn to face something in the sky as all the cannons start shooting at something.]
 
+S
