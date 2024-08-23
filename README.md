@@ -462,4 +462,4 @@ NATASHA ROMANOFF: If I move on, who does this?
 
 STEVE ROGERS: Maybe it doesn't need to be done.
 
-NATASHA ROMANOFF: [Deep in her thoughts] I used to have nothing. And then I got this
+NATASHA ROMANOFF: [Deep in her thoughts] I used to have nothing. And then I got this.
