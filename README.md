@@ -368,4 +368,4 @@ SCOTT LANG: You're so big!
 
 [Both dad and daughter share a hug once more.]
 
-[The camera cuts to a sunset in San Francisco, showing a metal face with a sign saying in its headings, "RESTRICTED AREA, DO NOT EN
+[The camera cuts to a sunset in San Francisco, showing a metal face with a sign saying in its headings, "RESTRICTED AREA, DO NOT ENT
