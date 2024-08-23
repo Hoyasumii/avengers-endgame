@@ -1778,4 +1778,4 @@ THANOS (2014): Can you access her?
 
 EBONY MAW (2014): Yes. The two are linked.
 
-THANOS (2014): Sea
+THANOS (2014): Sear
