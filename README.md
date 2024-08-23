@@ -3135,4 +3135,4 @@ BUCKY BARNES: Go ahead.
 
 Sam Wilson: Cap?
 
-(OLD) S
+(OLD) ST
