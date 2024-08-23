@@ -1948,4 +1948,4 @@ RHODEY: Okay. All right. Go ahead.
 
 NEBULA: I wasn't always like this.
 
-RHODEY: Me either. But we work with wha
+RHODEY: Me either. But we work with what
