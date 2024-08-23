@@ -846,4 +846,4 @@ STEVE ROGERS: As a baby!
 
 BRUCE BANNER: He'll grow.
 
-STEVE ROGERS: Br
+STEVE ROGERS: Bri
