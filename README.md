@@ -1364,4 +1364,4 @@ ROCKET: Come here. Right here.
 
 [Rocket slaps Thor in the face.]
 
-ROCKET: You think you're the onl
+ROCKET: You think you're the only
