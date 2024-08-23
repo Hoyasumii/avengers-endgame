@@ -395,3 +395,4 @@ NATASHA ROMANOFF: [turns to Danvers] Carol, are we seeing you here next month?
 CAROL DANVERS: Not likely.
 
 ROCKET: What, you gonna get another haircut?
+
