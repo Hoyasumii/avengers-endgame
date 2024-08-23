@@ -1245,3 +1245,4 @@ ROCKET: Oh, look. It's like a little puppy, all happy and everything. [Imitating
 NEBULA: Thanos found the Soul Stone on Vormir.
 
 NATASHA ROMANOFF: [In a business-like tone] What is Vormir?
+
