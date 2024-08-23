@@ -1878,4 +1878,4 @@ ASGARDIAN SOLDIER (2013): Get that rabbit!
 
 THOR: Ma, I have to tell you something.
 
-FRIGGA (2013): No, son. You don't. You're here to repa
+FRIGGA (2013): No, son. You don't. You're here to repai
