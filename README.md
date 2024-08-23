@@ -3181,4 +3181,4 @@ Sam Wilson: [seeing elderly Steve's wedding ring] You wanna tell me about her?
 
 [Screen Title: Distributed by Walt Disney Studios Motion Pictures]
 
-The End
+The End.
