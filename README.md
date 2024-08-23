@@ -2989,4 +2989,4 @@ MORGAN STARK: Okay.
 
 VALKYRIE: So, when can we expect you back?
 
-THOR
+THOR:
