@@ -2392,4 +2392,4 @@ NATASHA ROMANOFF: It's okay.
 
 CLINT BARTON: Please– [Natasha kicks the wall, falls off the rope, and plummets to the ground.] NO!!!
 
-[The shot shows her body on the ground, dead. A boom in the 
+[The shot shows her body on the ground, dead. A boom in the s
