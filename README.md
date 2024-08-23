@@ -1022,4 +1022,4 @@ KORG: Umm... Stormbreaker?
 
 THOR: Now, who's swingin' Stormbreaker?
 
-BRUCE BANN
+BRUCE BANNE
