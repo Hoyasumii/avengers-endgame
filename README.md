@@ -2572,4 +2572,4 @@ CLINT BARTON: Cap?
 
 CLINT BARTON: [under his breath] Damn.
 
-[Clint takes the gaunt
+[Clint takes the gauntl
