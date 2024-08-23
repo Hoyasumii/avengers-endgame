@@ -2598,4 +2598,4 @@ NEBULA (2014): What will you do?
 
 THANOS (2014): Wait.
 
-[Nebula (2014) proceeds to go find the stones and the camera pans over the Sanctuary II and w
+[Nebula (2014) proceeds to go find the stones and the camera pans over the Sanctuary II and we
