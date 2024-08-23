@@ -1858,4 +1858,4 @@ FRIGGA (2013): You're no idiot. You're here aren't you? Seeking counsel from the
 
 THOR: I guess, yeah.
 
-FRIGGA (2013): Idiot? No.
+FRIGGA (2013): Idiot? No. 
