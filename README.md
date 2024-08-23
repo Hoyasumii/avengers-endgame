@@ -966,4 +966,4 @@ THOR: Hulk, you know my friends, Miek, Korg, right?
 
 [We see Miek and Korg sitting on a couch, PlayStation controller in hand, playing Fortnite and eating chips.]
 
-KORG: H
+KORG: He
