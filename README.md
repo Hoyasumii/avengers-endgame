@@ -1764,4 +1764,4 @@ THE ANCIENT ONE (2012): I'm counting on you, Bruce. We all are.
 
 THANOS (2014): [To Ebony Maw] Run diagnostics. Show me her memory file.
 
-EBONY MAW (2014): Sire, the file appears entangled. It was a memory, but not hers. There's 
+EBONY MAW (2014): Sire, the file appears entangled. It was a memory, but not hers. There's a
