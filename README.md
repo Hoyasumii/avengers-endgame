@@ -710,4 +710,4 @@ TONY STARK: [Whispering] What are you doing up, little mess?
 
 MORGAN STARK: Shit.
 
-TONY STARK: No, we don't say that. Only Mommy says that word. She coined it, it belongs t
+TONY STARK: No, we don't say that. Only Mommy says that word. She coined it, it belongs to
