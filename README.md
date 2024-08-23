@@ -1308,4 +1308,4 @@ STEVE ROGERS: All right, we all have our assignments. Two Stones uptown, one Sto
 
 [2012 Hulk passes by them, smashing everything in his way. Bruce puts his hand on his face, embarrassed.] STEVE ROGERS: Feel free to smash a few things along the way.
 
-BRUCE BANNER: I think it'
+BRUCE BANNER: I think it's
