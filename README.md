@@ -1272,4 +1272,4 @@ NATASHA ROMANOFF: Wait, he lived in New York?
 
 TONY STARK: No. He lived in Toronto. Were you even paying attention?
 
-NATASHA ROMANOFF: Guys, if you pick the right year, there are 
+NATASHA ROMANOFF: Guys, if you pick the right year, there are t
