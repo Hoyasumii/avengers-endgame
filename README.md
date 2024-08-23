@@ -1340,4 +1340,4 @@ THE ANCIENT ONE (2012): Let's start over, shall we?
 
 THOR: That's Jane.
 
-ROCKET: All right. Her
+ROCKET: All right. Here
