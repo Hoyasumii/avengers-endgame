@@ -2556,4 +2556,4 @@ BRUCE BANNER: Rhodey!
 
 [Scene cuts to Scott who survives the blast by shrinking.]
 
-RHODEY: Mayday, mayday! Does anybody copy? We're in the lo
+RHODEY: Mayday, mayday! Does anybody copy? We're in the low
