@@ -2348,4 +2348,4 @@ CLINT BARTON: Then I guess we both know who it's gotta be.
 
 NATASHA ROMANOFF: I guess we do.
 
-[Clint holds Natasha's hand
+[Clint holds Natasha's hand 
