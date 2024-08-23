@@ -2949,4 +2949,4 @@ PEPPER POTTS: Tony. Look at me. [She makes sure Tony gets a long look at her smi
 
 [We cut to a montage showing reunions and celebrations. At Clint Barton's farm, he joyfully reunites with his family. At Peter Parker's school, Peter and Ned meet in the hallways. They share a handshake before giving each other a heartfelt hug. In San Francisco, Scott Lang watches fireworks with Cassie Lang and Hope Van Dyne. In Wakanda, T'Cahlla, Shuri, and Ramonda oversee the celebrations from their balcony. Over all this, we hear Tony's voice narrating.]
 
-TONY STARK (voiceover): Everybody wants a happy ending, right? But it doesn't always roll that way. Maybe this time. I'm hoping 
+TONY STARK (voiceover): Everybody wants a happy ending, right? But it doesn't always roll that way. Maybe this time. I'm hoping i
