@@ -2776,4 +2776,4 @@ GAMORA (2014): [Kicks Peter in the nuts, slightly hurting Peter] Don't– touch�
 
 PETER QUILL: You missed the first time– Then you got them both the second time.
 
-GAM
+GAMO
