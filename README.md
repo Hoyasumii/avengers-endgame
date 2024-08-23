@@ -2512,4 +2512,4 @@ BRUCE BANNER: Everybody comes home.
 
 THOR: Take it off! Take it off!
 
-STEVE ROGERS: No, wait. Bruce, are y
+STEVE ROGERS: No, wait. Bruce, are yo
