@@ -414,4 +414,4 @@ NATASHA ROMANOFF: Alright.
 
 CAROL DANVERS: [To Rhodey] Good luck. [cuts off call]
 
-[Except for Rhodes. Nat sighs exhausted, and sits down, as sh
+[Except for Rhodes. Nat sighs exhausted, and sits down, as she
