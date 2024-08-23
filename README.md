@@ -850,4 +850,4 @@ STEVE ROGERS: Bring Scott back!
 
 BRUCE BANNER: [motioning to Nat] When I say kill the power, kill the power.
 
-NATA
+NATAS
