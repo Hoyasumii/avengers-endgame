@@ -290,4 +290,4 @@ NEBULA: My father is many things. A liar is not one of them.
 
 THANOS: Ah, thank you, daughter. [Nebula looks down, a little uncomfortable.] Perhaps I treated you too harshly.
 
-[We see Thor's face filled with rage as he raises to summon Stormbreaker, and before anyone can stop him, SLICES Thanos'
+[We see Thor's face filled with rage as he raises to summon Stormbreaker, and before anyone can stop him, SLICES Thanos' 
