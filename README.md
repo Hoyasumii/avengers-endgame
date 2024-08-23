@@ -1602,4 +1602,4 @@ TONY STARK: Yeah, I had a can just for emergencies. Relax. Can we focus, please?
 
 SCOTT LANG: I'm going inside you. Now.
 
-ALEXANDER PIERCE (2012): May I ask you where you're goin
+ALEXANDER PIERCE (2012): May I ask you where you're going
