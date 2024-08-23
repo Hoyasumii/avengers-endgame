@@ -3007,4 +3007,4 @@ THOR: I'm counting on it. Your Majesty.
 
 [Thor offers Valkyrie a farewell handshake]
 
-VALKYRIE: What will yo
+VALKYRIE: What will you
