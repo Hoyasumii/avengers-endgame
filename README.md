@@ -794,4 +794,4 @@ BRUCE BANNER: Just... It was a bad joke.
 
 NATASHA ROMANOFF: You were kidding, right?
 
-BRUCE BANNER: [Whis
+BRUCE BANNER: [Whisp
