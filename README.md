@@ -6,4 +6,4 @@ CLINT BARTON: How about now?
 
 CLINT BARTON: Alright. Ready your fingers.
 
-COOPER BARTON: N
+COOPER BARTON: Ni
