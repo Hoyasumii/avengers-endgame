@@ -1450,4 +1450,4 @@ GAMORA (2014): On a planet called Morag.
 
 NEBULA (2014): Father's plan is finally in motion.
 
-GAMORA (2014)
+GAMORA (2014):
