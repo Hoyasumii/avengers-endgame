@@ -552,4 +552,4 @@ STEVE ROGERS: (Tony giving a drink to him.) Thank you.
 
 TONY STARK: In Layman's terms, it means you're not coming home.
 
-SCOTT LANG: I d
+SCOTT LANG: I di
