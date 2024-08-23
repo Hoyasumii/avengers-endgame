@@ -1904,4 +1904,4 @@ THOR: No, wait!
 
 [Thor holds out his hand]
 
-ROCKET: [To Frigga] Wh- what
+ROCKET: [To Frigga] Wh- what 
