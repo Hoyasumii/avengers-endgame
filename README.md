@@ -1292,4 +1292,4 @@ TONY STARK: All right. You heard the man. Stroke those keys, jolly green.
 
 BRUCE BANNER: Tractors engaged.
 
-ROCKET: [Addressing the shrunk Benatar in Clint's hand] You promise to bring t
+ROCKET: [Addressing the shrunk Benatar in Clint's hand] You promise to bring th
