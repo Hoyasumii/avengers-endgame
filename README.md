@@ -2883,4 +2883,4 @@ PETER PARKER: Hey! Nice to meet you– OH, MY GOD!
 
 SAM: What the hell is this?
 
-TONY STARK: F.R.I.D.A.Y., what are they firin
+TONY STARK: F.R.I.D.A.Y., what are they firing
