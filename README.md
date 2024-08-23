@@ -2444,4 +2444,4 @@ STEVE ROGERS: We will.
 
 [Cut to inside the Avenger's Lab. Tony carefully places the stones in the gauntlet he made while Bruce and Rocket watches. With nervous precision, Tony manipulates the machine and carefully places all six stones into the gauntlet]
 
-RO
+ROC
