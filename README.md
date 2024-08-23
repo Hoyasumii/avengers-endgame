@@ -3003,4 +3003,4 @@ THOR: It's time for me to be who I am rather than who I'm supposed to be. But yo
 
 VALKYRIE: You know I'd make a lot of changes around here.
 
-THOR: I'm counting on it. Your Maje
+THOR: I'm counting on it. Your Majes
