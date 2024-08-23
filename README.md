@@ -1210,4 +1210,4 @@ TONY STARK: Our history. So, not a lot of convenient spots to just drop in.
 
 CLINT BARTON: Which means we have to pick our targets.
 
-TONY STARK: C
+TONY STARK: Co
