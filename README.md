@@ -3069,4 +3069,4 @@ THOR: Yes, you. Of course. Of course. Of course.
 
 BRUCE BANNER: Now, remember– You have to return the stones to the exact moment you got them. Or you're gonna open up a bunch of nasty alternative realities.
 
-STEVE ROGERS: Don't worry, Bruce. Clip all the br
+STEVE ROGERS: Don't worry, Bruce. Clip all the bra
