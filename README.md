@@ -1442,4 +1442,4 @@ GAMORA (2014): And yet, you always need it. [Nebula (2014) laughs and Gamora's h
 
 NEBULA (2014): Why?
 
-GA
+GAM
