@@ -1130,4 +1130,4 @@ SCOTT LANG: All right. I'm not ready for this.
 
 CLINT BARTON: I'm game. I'll do it.
 
-[Clint walks in 
+[Clint walks in w
