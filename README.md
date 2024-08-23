@@ -432,4 +432,4 @@ RHODEY: Nat...
 
 NATASHA ROMANOFF: Please.
 
-RHODEY: [reluctantly] Okay. [then Rhodes cut
+RHODEY: [reluctantly] Okay. [then Rhodes cuts
