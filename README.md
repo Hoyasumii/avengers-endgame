@@ -714,4 +714,4 @@ TONY STARK: No, we don't say that. Only Mommy says that word. She coined it, it 
 
 MORGAN STARK: Why you up?
 
-TONY STARK: 'Cause I got so
+TONY STARK: 'Cause I got som
