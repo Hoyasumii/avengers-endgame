@@ -1228,4 +1228,4 @@ TONY STARK: Awesome. Eggs? Breakfast?
 
 THOR: I'd like a Bloody Mary, thank you.
 
-[Cut to the Avengers sitting
+[Cut to the Avengers sitting 
