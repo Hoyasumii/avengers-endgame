@@ -252,4 +252,4 @@ STEVE ROGERS: I know it will.
 
 STEVE ROGERS: Cause I don't know what I'm going to do if it doesn't.
 
-[Carol Danvers approach
+[Carol Danvers approache
