@@ -2350,4 +2350,4 @@ NATASHA ROMANOFF: I guess we do.
 
 [Clint holds Natasha's hand and she reciprocates and they look at each other]
 
-CLINT BARTON: I'm starting to
+CLINT BARTON: I'm starting to 
