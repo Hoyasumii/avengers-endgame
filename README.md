@@ -2462,4 +2462,4 @@ STEVE ROGERS: Thor, just wait. We haven't decided who's gonna put that on yet. T
 
 SCOTT LANG: We should at least discuss it.
 
-THOR: N
+THOR: No
