@@ -184,4 +184,4 @@ RHODEY: You even know where he is?
 
 CAROL DANVERS: I know people who might.
 
-NEBULA: [Standing behind Carol] Don't bother. I can tell you where Thanos is. Thanos spent a long time trying to perfect me. And when he worked, he talked about his great plan. Even disassembled, I wanted to please him. I'd ask "where would we go once his plan was complete?". His answer was always the same: "To th
+NEBULA: [Standing behind Carol] Don't bother. I can tell you where Thanos is. Thanos spent a long time trying to perfect me. And when he worked, he talked about his great plan. Even disassembled, I wanted to please him. I'd ask "where would we go once his plan was complete?". His answer was always the same: "To the
