@@ -1222,4 +1222,4 @@ RHODEY: No, I'm pretty sure he's dead.
 
 [Thor wakes up]
 
-THOR: Where to star
+THOR: Where to start
