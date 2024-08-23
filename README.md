@@ -3017,4 +3017,4 @@ ROCKET: Move it or lose it, hairbag.
 
 [scene cuts to Quill searching for Gamora on the screen as Thor walks in he closes it]
 
-TH
+THO
