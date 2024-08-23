@@ -1056,4 +1056,4 @@ THUG #1: あいつだ! アキヒコさんを！(Romanized: Aitsu da! Akihiko-san
 
 [Both thugs fire their SMGs as both got slain by a shuriken. A yakuza member wielding a katana charges at him in the stairs, but is immediately overthrown and slain by the Ronin. Ronin then fights another sword-wielding thug, which is thrown outside the glass, killing him. The camera passes through two more buildings as the fighting ensues with different screams, shouts, more havoc inside, and gunfire. A man in a dark raincoat jumps through the glass window, with the Ronin doing the same, as both of them lands in a dark alleyway. The man in the raincoat turns to the Ronin, who just landed after him. It was Akihiko, the leader of a yakuza gang, whose head being hunted by the Ronin himself.]
 
-AKIHIKO: てめえ なぜこんなことをする? 俺たちてめえになにもしてねぇだろ！(Romanized: Temē naze konna koto wo suru? 
+AKIHIKO: てめえ なぜこんなことをする? 俺たちてめえになにもしてねぇだろ！(Romanized: Temē naze konna koto wo suru? O
