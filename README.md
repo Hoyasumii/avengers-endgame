@@ -2907,4 +2907,4 @@ WANDA MAXIMOFF: Don't worry.
 
 OKOYE: She's got help.
 
-[Pepper lands next to Okoy
+[Pepper lands next to Okoye
