@@ -862,4 +862,4 @@ NATASHA ROMANOFF: Oh thank god.
 
 SCOTT LANG: But I don't know if it was "baby" me or "old" me...Or just "me" me.
 
-BRUCE BANNER: [holds up his his hands in a 
+BRUCE BANNER: [holds up his his hands in a d
