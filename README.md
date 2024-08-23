@@ -324,4 +324,4 @@ JIM STARLIN: What about you?
 
 JOE RUSSO: I cried... just before dessert. But I'm seeing him again tomorrow, so...
 
-STEVE ROGERS: That's great. You did the hardest pa
+STEVE ROGERS: That's great. You did the hardest par
