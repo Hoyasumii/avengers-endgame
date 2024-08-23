@@ -2160,4 +2160,4 @@ TONY STARK: Yeah–
 
 HOWARD STARK: You look a little green around the gills there, Potts.
 
-TONY STARK: I'm fine. Just, lo
+TONY STARK: I'm fine. Just, lon
