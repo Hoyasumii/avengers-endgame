@@ -1980,4 +1980,4 @@ GAMORA (2014): The stones...
 
 THANOS (2014): I found them all. I won. Tipped the cosmic scales to balance.
 
-[Thanos (2014) caress Gamora (2014) and she kneels
+[Thanos (2014) caress Gamora (2014) and she kneels 
