@@ -2570,4 +2570,4 @@ CLINT BARTON: Cap?
 
 [Clint finds the gauntlet is with him but senses he's not alone down there. He shoots an arrow with light towards the dark tunnel and finds hordes of Outriders.]
 
-CLINT BART
+CLINT BARTO
