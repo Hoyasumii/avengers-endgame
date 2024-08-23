@@ -1110,4 +1110,4 @@ ROCKET: It's Rocket. Take it easy. You're only a genius on Earth, pal.
 
 RHODEY: Time travel suit? Not bad.
 
-SCOTT LANG: [Response to Hulk touching the suit and some
+SCOTT LANG: [Response to Hulk touching the suit and somet
