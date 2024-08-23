@@ -2296,4 +2296,4 @@ NEBULA (2014): How do I look?
 
 CLINT BARTON: Wow– Under different circumstances, this would be totally awesome.
 
-[Natasha and Clint starts walking towards the moun
+[Natasha and Clint starts walking towards the mount
