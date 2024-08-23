@@ -2564,4 +2564,4 @@ RHODEY: We're drowning! Does anybody copy? Mayday!
 
 SCOTT LANG: Wait! I'm here! I'm here, can you hear me?
 
-[Scene cuts to Clint in the sewer system and trying to get his bearings. He flashes a light upwards to see what happe
+[Scene cuts to Clint in the sewer system and trying to get his bearings. He flashes a light upwards to see what happen
