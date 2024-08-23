@@ -646,4 +646,4 @@ SCOTT LANG: [leaning forward to hand back the phone] Don't you wanna grab one wi
 
 SCOTT LANG: They're Hulk fans, they don't know Ant-Man. Nobody does.
 
-BRUCE BANNER: Wa
+BRUCE BANNER: Wai
