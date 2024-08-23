@@ -2402,4 +2402,4 @@ RHODEY: You telling me this'll actually work?
 
 BRUCE BANNER: Clint, where's Nat?
 
-[The silence from Clint tells them all they 
+[The silence from Clint tells them all they n
