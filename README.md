@@ -1988,4 +1988,4 @@ THANOS (2014): It's my destiny.
 
 [Maw resumes playing the memory]
 
-NEBULA (Memory): My father is many things. A liar is not one o
+NEBULA (Memory): My father is many things. A liar is not one of
