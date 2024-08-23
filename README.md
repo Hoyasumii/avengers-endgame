@@ -998,4 +998,4 @@ ROCKET: [Concerned] You look like melted ice cream.
 
 THOR: [Laughs] So, what's up?
 
-BRUCE BANNER: We n
+BRUCE BANNER: We ne
