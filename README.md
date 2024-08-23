@@ -1010,4 +1010,4 @@ THOR: Don't say that name.
 
 [Korg stands up and takes off his headphones]
 
-KORG: Um, yeah. W
+KORG: Um, yeah. We
