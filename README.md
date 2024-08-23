@@ -864,4 +864,4 @@ SCOTT LANG: But I don't know if it was "baby" me or "old" me...Or just "me" me.
 
 BRUCE BANNER: [holds up his his hands in a dramatic way] Time travel!
 
-[Steve says nothing. He simply shakes his head and walks aw
+[Steve says nothing. He simply shakes his head and walks awa
