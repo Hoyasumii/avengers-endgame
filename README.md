@@ -3155,4 +3155,4 @@ Sam Wilson: Only thing bumming me out is the fact I have to live in a world with
 
 (OLD) STEVE ROGERS: Oh, That reminds me. [brings out his shield.] Try it on.
 
-[Sam look over to Bucky, who nods
+[Sam look over to Bucky, who nods,
