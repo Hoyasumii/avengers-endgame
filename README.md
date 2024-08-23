@@ -2853,4 +2853,4 @@ PETER PARKER: I got it!
 
 PETER PARKER: Activate Instant Kill!
 
-[The Robotic Spider Legs co
+[The Robotic Spider Legs com
