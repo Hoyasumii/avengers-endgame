@@ -992,4 +992,4 @@ THOR: So you guys want a drink? What are you drinking? We have beer, tequila, al
 
 BRUCE BANNER: Buddy, you all right?
 
-THOR: Yes, I'm fine! Wh
+THOR: Yes, I'm fine! Why
