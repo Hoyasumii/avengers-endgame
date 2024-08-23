@@ -1918,4 +1918,4 @@ ROCKET: Oh, boy.
 
 THOR: Goodbye, Mom.
 
-FRIGGA (2
+FRIGGA (20
