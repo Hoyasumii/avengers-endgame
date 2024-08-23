@@ -776,4 +776,4 @@ TONY STARK: I sometimes feel I should put it in a locked box and drop it at the 
 
 PEPPER POTTS: But would you be able to rest?
 
-[Cut to a lab in the Avengers Compound, we see Bruce fiddling 
+[Cut to a lab in the Avengers Compound, we see Bruce fiddling w
