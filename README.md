@@ -2943,4 +2943,4 @@ F.R.I.D.A.Y.: Life functions critical.
 
 [Tony smiles with tears in his eyes.]
 
-PEPPER POT
+PEPPER POTT
