@@ -2574,4 +2574,4 @@ CLINT BARTON: [under his breath] Damn.
 
 [Clint takes the gauntlet and runs towards the opposite direction while the Outriders chase after him.]
 
-[Scene cuts to th
+[Scene cuts to the
