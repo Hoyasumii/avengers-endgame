@@ -2985,4 +2985,4 @@ HAPPY: You know your dad liked cheeseburgers? I'm gonna get you all the cheesebu
 
 MORGAN STARK: Okay.
 
-[Following the funeral for Tony, we cut to Thor and Valkyri
+[Following the funeral for Tony, we cut to Thor and Valkyrie
