@@ -1806,4 +1806,4 @@ THANOS (2014): No. The same Nebula. From two different times. Set course for Mor
 
 FRIGGA (2013): My ladies, I'll see you after. Go on.
 
-[T
+[Th
