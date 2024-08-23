@@ -132,4 +132,4 @@ TONY STARK: I said, "we'd lose". You said, "We'll do that together too." And gue
 
 RHODEY: Okay.
 
-TONY STARK: Rig
+TONY STARK: Righ
