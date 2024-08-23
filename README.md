@@ -1234,4 +1234,4 @@ ROCKET: Quill said he stole the Power Stone from Morag.
 
 SCOTT LANG: Is that a person?
 
-ROCKET: Morag's a planet. Quill was a per
+ROCKET: Morag's a planet. Quill was a pers
