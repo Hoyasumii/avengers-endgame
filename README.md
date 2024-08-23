@@ -1026,4 +1026,4 @@ BRUCE BANNER: I get it. You're in a rough spot, okay? I've been there myself. Yo
 
 THOR: I don't know. Is it... Natasha?
 
-BRUCE BANNER: It was you.
+BRUCE BANNER: It was you. 
