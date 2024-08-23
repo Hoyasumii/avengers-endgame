@@ -686,4 +686,4 @@ NATASHA ROMANOFF: Well, you pulled this off. I remember a time when that seemed 
 
 [Cut to Tony talking to his computer, generating a holographic model of something he's working on.]
 
-TONY STARK: Look at a mod inspiration, let me see what check out. So, recommend one last sim before we pack it in for the night. This time, in 
+TONY STARK: Look at a mod inspiration, let me see what check out. So, recommend one last sim before we pack it in for the night. This time, in t
