@@ -1820,4 +1820,4 @@ FRIGGA (2013): You're better off leaving the sneaking to your brother.
 
 THOR: Yeah, I was simply just going for a walk, and uh... [Trying to hide his belly]
 
-FR
+FRI
