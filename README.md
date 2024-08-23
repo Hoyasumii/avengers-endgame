@@ -1926,4 +1926,4 @@ RHODEY: So he's an idiot?
 
 NEBULA: Yeah.
 
-[Rhodey knocks out Qu
+[Rhodey knocks out Qui
