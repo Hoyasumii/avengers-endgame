@@ -888,4 +888,4 @@ TONY STARK: We got a shot at getting these stones, but I gotta tell you my prior
 
 STEVE ROGERS: Sounds like a deal. [Steve reaches out his hand to shake in the deal, in which Tony replies in the same way.]
 
-[Tony reaches back into his trunk to pull something else out, Capt
+[Tony reaches back into his trunk to pull something else out, Capta
