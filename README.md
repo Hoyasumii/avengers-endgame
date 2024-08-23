@@ -2652,4 +2652,4 @@ STEVE ROGERS: Born out of blood.
 
 THANOS (2014): They'll never know it. Because you won't be alive to tell them.
 
-[The fighting starts, and Thor and Tony go straight at Thanos (2014). Meanwhile, Hulk is under all of the mess trying to hold up the structure. 
+[The fighting starts, and Thor and Tony go straight at Thanos (2014). Meanwhile, Hulk is under all of the mess trying to hold up the structure. R
