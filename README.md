@@ -1432,4 +1432,4 @@ NEBULA: My father, my sister... and me.
 
 RHODEY: And you? Where are you right now?
 
-[Cuts to a scene of Gamora 
+[Cuts to a scene of Gamora (
