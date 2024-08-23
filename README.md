@@ -44,4 +44,4 @@ CLINT BARTON: Alright, we're coming; we're hungry. [Clint looks behind him, but 
 
 NEBULA: Wrra! [Nebula, frustrated, puts her hands in a fighting stance while looking at Tony.]
 
-TONY STARK: You don't need to do that. Because uh... you
+TONY STARK: You don't need to do that. Because uh... you'
