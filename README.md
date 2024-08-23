@@ -952,4 +952,4 @@ BRUCE BANNER: Hello? Thor?
 
 THOR: [From another room.] Are you here about the cable?
 
-[He walks into view, a
+[He walks into view, an
