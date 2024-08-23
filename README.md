@@ -640,4 +640,4 @@ SCOTT LANG: Oh, yeah.
 
 BRUCE BANNER: Thanks, [To the Children] Say "green"! [The children and Bruce say Green as Scott snaps the photo.]
 
-BRUCE BANNER: Did you get that
+BRUCE BANNER: Did you get that?
