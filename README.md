@@ -2951,4 +2951,4 @@ PEPPER POTTS: Tony. Look at me. [She makes sure Tony gets a long look at her smi
 
 TONY STARK (voiceover): Everybody wants a happy ending, right? But it doesn't always roll that way. Maybe this time. I'm hoping if you play this back, it's in celebration. I hope families are reunited, I hope we get it back, and something like a normal version of the planet has been restored. If there ever was such a thing. God, what a world. Universe, now. If you told me ten years ago that we weren't alone, let alone, you know, to this extent, I mean, I wouldn't have been surprised. But come on, you know? The epic forces of darkness and light that have come into play. And, for better or worse, that's the reality Morgan's gonna have to find a way to grow up in.
 
-[Cut to the Stark household. Pepper, Morgan, Happy Hogan, and Rhodey all watch Tony's holographic message being projected from
+[Cut to the Stark household. Pepper, Morgan, Happy Hogan, and Rhodey all watch Tony's holographic message being projected from 
