@@ -1864,4 +1864,4 @@ THOR: That's a little bit harsh.
 
 FRIGGA (2013): You do know what that makes you? Just like everyone else.
 
-THOR: I
+THOR: I'
