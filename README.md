@@ -2852,3 +2852,4 @@ PETER PARKER: I got it!
 [Peter grabs the Gauntlet with his webshooters and is surrounded by Chitauri.]
 
 PETER PARKER: Activate Instant Kill!
+
