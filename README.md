@@ -1458,4 +1458,4 @@ GAMORA (2014): If he gets all of them...
 
 [Thanos (2014) arrives, honking badass double-bladed sword in tow and healthy coating blood of his armour.]
 
-THANOS (2014): Ronan's located the Power Stone. 
+THANOS (2014): Ronan's located the Power Stone. I
