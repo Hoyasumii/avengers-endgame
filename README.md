@@ -262,4 +262,4 @@ NEBULA: And that's enough.
 
 [Suddenly, Carol Danvers flies through the roof, knocking Thanos down, and grabbing his neck. Bruce in the Hulkbuster armor bursts from the ground, and grabs Thanos' Infinity Gauntlet arm. Thor flies in and slices off the Infinity Gauntlet. Rhodey flies down with Rocket and aims guns on Thanos' head.]
 
-[Captain America walks in his Winter Soldier Outfit, with N
+[Captain America walks in his Winter Soldier Outfit, with Na
