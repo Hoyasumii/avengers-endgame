@@ -2863,4 +2863,4 @@ CORVUS GLAIVE: But sire, our troops!
 
 THANOS (2014): Just do it!
 
-[The spaceship cannons app
+[The spaceship cannons appe
