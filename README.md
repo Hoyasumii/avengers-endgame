@@ -1152,4 +1152,4 @@ NEBULA: That's not how it works.
 
 CLINT BARTON: Well, that's what I heard.
 
-BRUCE BANNER: What? By who? Who tol
+BRUCE BANNER: What? By who? Who told
