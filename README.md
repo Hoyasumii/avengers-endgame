@@ -2418,4 +2418,4 @@ THOR: Yeah, you're acting like she's dead. Why are we acting like she's dead? We
 
 CLINT BARTON: We can't get her back.
 
-THOR: Wha– wha
+THOR: Wha– what
