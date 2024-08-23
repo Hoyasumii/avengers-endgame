@@ -2740,4 +2740,4 @@ DOCTOR STRANGE: Is that everyone?
 
 WONG: What, you wanted more?
 
-[Giant-Man emerges from the rubble of the Avengers facility with Professor Hulk, War Machine, and Rocket. The Avengers, Guardians, Wakandans, Asgardians, and Ravagers take up battle positi
+[Giant-Man emerges from the rubble of the Avengers facility with Professor Hulk, War Machine, and Rocket. The Avengers, Guardians, Wakandans, Asgardians, and Ravagers take up battle positio
