@@ -2896,3 +2896,4 @@ STEVE ROGERS: Danvers, we need an assist here.
 [Cut to Scott finally activating the Quantum Tunnel. Then cut to Carol Danvers landing near Peter, who is on the ground, weirdly hugging the gauntlet with his body.]
 
 PETER PARKER: Hi. I'm– Peter Parker.
+
