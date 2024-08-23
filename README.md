@@ -1720,4 +1720,4 @@ BRUCE BANNER: Please, please!
 
 THE ANCIENT ONE (2012): I'm sorry, I can't help you, Bruce. If I give up the Time Stone to help your Reality, I'm dooming my own.
 
-BRUCE BANNER: With all due respect, I'm not sure the science really supports
+BRUCE BANNER: With all due respect, I'm not sure the science really supports 
