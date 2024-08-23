@@ -704,4 +704,4 @@ TONY STARK: Shit!
 
 MORGAN STARK: Shit.
 
-[Morgan, who has been hiding behind him all this time, giggles as she repeat
+[Morgan, who has been hiding behind him all this time, giggles as she repeats
