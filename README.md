@@ -2891,4 +2891,4 @@ F.R.I.D.A.Y.: Something just entered the upper atmosphere.
 
 ROCKET: Oh, yeah!
 
-STEVE ROGERS: Danvers, we need an as
+STEVE ROGERS: Danvers, we need an ass
