@@ -2696,4 +2696,4 @@ NEBULA: You can change.
 
 NEBULA (2014): He won't let me.
 
-[Nebula (2014) points a gun at Gamora (20
+[Nebula (2014) points a gun at Gamora (201
