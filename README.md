@@ -494,4 +494,4 @@ SCOTT LANG: Alright. So... five years ago, right before Thanos, I was in a place
 
 NATASHA ROMANOFF: I'm sorry. That must've been a very long five years.
 
-SCOTT LANG: Yeah, but that's just it. It wasn't. F
+SCOTT LANG: Yeah, but that's just it. It wasn't. Fo
