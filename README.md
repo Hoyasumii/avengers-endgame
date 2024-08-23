@@ -2120,4 +2120,4 @@ STEVE ROGERS: In plain sight.
 
 TONY STARK: [Leaving the elevator] Good luck on your mission, Captain.
 
-STEVE ROGERS: [Waiting for another floor] Good luck on your proje
+STEVE ROGERS: [Waiting for another floor] Good luck on your projec
