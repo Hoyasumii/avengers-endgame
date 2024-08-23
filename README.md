@@ -2318,4 +2318,4 @@ RED SKULL (2014): Ah, liebchen– If only it were that easy.
 
 [Red Skull leads Clint and Natasha to the cliff]
 
-RED 
+RED S
