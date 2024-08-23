@@ -1616,4 +1616,4 @@ ALEXANDER PIERCE (2012): Oh, he's gonna answer to us. Odin can have what's left.
 
 HYDRA AGENT: Hand over the case, Stark.
 
-TONY STARK: [To present Scott through radio as he inhales sharply] All right, move it, Stu
+TONY STARK: [To present Scott through radio as he inhales sharply] All right, move it, Stua
