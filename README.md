@@ -2304,4 +2304,4 @@ NATASHA ROMANOFF: Whatever. He eats garbage.
 
 RED SKULL (2014): Welcome.
 
-[Natasha and Clint d
+[Natasha and Clint dr
