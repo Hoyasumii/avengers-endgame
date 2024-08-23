@@ -2574,4 +2574,4 @@ CLINT BARTON: [under his breath] Damn.
 
 [Clint takes the gauntlet and runs towards the opposite direction while the Outriders chase after him.]
 
-[Scene cuts to the Sanctuary II and it beams Thanos (2014) fully armoured to t
+[Scene cuts to the Sanctuary II and it beams Thanos (2014) fully armoured to th
