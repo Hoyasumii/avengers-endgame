@@ -386,4 +386,4 @@ NATASHA ROMANOFF: [turns to Okoye] You get a reading on those tremors?
 
 OKOYE: It was a mild subduction under the African plate.
 
-NATASHA ROMANOFF: Do we have
+NATASHA ROMANOFF: Do we have 
