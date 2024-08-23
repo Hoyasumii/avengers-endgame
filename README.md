@@ -92,4 +92,4 @@ NATASHA ROMANOFF: World governments are in pieces. The parts that are still work
 
 TONY STARK: Where is he now? Where?
 
-STEVE ROGERS: We don't know. He ju
+STEVE ROGERS: We don't know. He jus
