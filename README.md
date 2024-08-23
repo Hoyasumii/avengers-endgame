@@ -932,4 +932,4 @@ VALKYRIE: [Noticing Bruce's change of appearance] I think I liked you better eit
 
 BRUCE BANNER: [motioning to Rocket] This is Rocket.
 
-ROCKET: How 
+ROCKET: How y
