@@ -2682,4 +2682,4 @@ NEBULA (2014): You're betraying us?
 
 [With her hands up, Nebula joins Gamora (2014). Nebula (2014) points her gun at her future self]
 
-NEBULA: You don't have to do this
+NEBULA: You don't have to do this.
