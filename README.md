@@ -3005,4 +3005,4 @@ VALKYRIE: You know I'd make a lot of changes around here.
 
 THOR: I'm counting on it. Your Majesty.
 
-[Thor offers Valkyrie a farewell ha
+[Thor offers Valkyrie a farewell han
