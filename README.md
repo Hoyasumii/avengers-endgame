@@ -2907,4 +2907,4 @@ WANDA MAXIMOFF: Don't worry.
 
 OKOYE: She's got help.
 
-[Pepper lands next to Okoye, followed by Mantis, Shuri, the Wasp, 2014 Gam
+[Pepper lands next to Okoye, followed by Mantis, Shuri, the Wasp, 2014 Gamo
