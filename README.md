@@ -1966,4 +1966,4 @@ NATASHA (Memory): Where are the stones?
 
 THANOS (Memory): Gone. Reduced to atoms.
 
-BRUCE (Memory): You used
+BRUCE (Memory): You used 
