@@ -238,4 +238,4 @@ ROCKET: You better not throw up on my ship.
 
 NEBULA: Approaching jump in 3... 2... 1!
 
-[The ship jumps forward into a wormhole, and we see Steve holding onto his seat for d
+[The ship jumps forward into a wormhole, and we see Steve holding onto his seat for de
