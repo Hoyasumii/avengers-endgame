@@ -2618,4 +2618,4 @@ GAMORA (2014): Come on. We can stop him.
 
 TONY STARK: Come on, buddy. Wake up. That's my man. [He has Cap's shield.] You lose this again, I'm keeping it.
 
-ST
+STE
