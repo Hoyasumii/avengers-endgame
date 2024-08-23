@@ -2999,4 +2999,4 @@ VALKYRIE: That's funny. You're being serious?
 
 [Thor nods his head]
 
-THOR: It's time for me to be
+THOR: It's time for me to be 
