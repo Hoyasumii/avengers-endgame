@@ -1430,4 +1430,4 @@ RHODEY: Wait a minute, what are you talking about right now? Who else is looking
 
 NEBULA: My father, my sister... and me.
 
-RHODEY: And you? Where are you right 
+RHODEY: And you? Where are you right n
