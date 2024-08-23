@@ -332,4 +332,4 @@ STEVE ROGERS: That's great. You did the hardest part. You took the jump, you did
 
 Scott Lang: (grunts as he pushes away a cushion out of his body, and deactivates the helmet, but still grunting in pain, as he sweeps away sparks from an electrical failure out of his suit, then try to stand up.) What the hell?
 
-(He manages to stand up, as another electrical
+(He manages to stand up, as another electrical 
