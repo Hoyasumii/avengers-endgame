@@ -1856,4 +1856,4 @@ THOR: His head was over there... His body over there... What was the point? I wa
 
 FRIGGA (2013): You're no idiot. You're here aren't you? Seeking counsel from the wisest person in Asgard.
 
-THOR: I
+THOR: I 
