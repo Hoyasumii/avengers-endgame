@@ -1634,4 +1634,4 @@ ALEXANDER PIERCE (2012): Okay. Then give me the case.
 
 TONY STARK: Do it, Lang!
 
-TONY STARK (2012): Get your hands of
+TONY STARK (2012): Get your hands off
