@@ -2752,4 +2752,4 @@ THOR: No, no, give me that. You have the little one. [best meme ever]
 
 [Later, Tony is seen fighting some of Thanos' army. Cull Obsidian backhands him, sending him to the ground, but Spider-Man uses his webs to pull him to the ground, allowing Giant-Man to stomp him flat. Peter runs to Tony and helps him up.]
 
-PETER PARKER: Hey! Holy cow! You will not believe what's been going on. Do you remember when we were in space? And I got all dusty? I must've passed out, Because I woke up, and you were gone. But D
+PETER PARKER: Hey! Holy cow! You will not believe what's been going on. Do you remember when we were in space? And I got all dusty? I must've passed out, Because I woke up, and you were gone. But Do
