@@ -2885,4 +2885,4 @@ SAM: What the hell is this?
 
 TONY STARK: F.R.I.D.A.Y., what are they firing at?
 
-F.R.I.D.A.Y.: Something just entered the upper atmosphere
+F.R.I.D.A.Y.: Something just entered the upper atmosphere.
