@@ -218,4 +218,4 @@ RHODEY: Hey, new girl, everyone here is about that superhero life. And if you do
 
 CAROL DANVERS: There are a lot of other planets in the universe. And unfortunately, they didn't have you guys.
 
-[Thor, who has been eating a snack behind all this time, stands up and walks over to Carol. She looks behind at him. He holds his hand up, and catches Stormbreaker as it flies over to
+[Thor, who has been eating a snack behind all this time, stands up and walks over to Carol. She looks behind at him. He holds his hand up, and catches Stormbreaker as it flies over to 
