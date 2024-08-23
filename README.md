@@ -1346,4 +1346,4 @@ THOR: I'll be right back, okay? There's a wine cellar, that's just down there. M
 
 ROCKET: Hey! Hey! Aren't you drunk enough already?
 
-[A door opens, Thor and Rocket both try to hide. We then see ladies along with Frigga (2013) walking. Thor sees hi
+[A door opens, Thor and Rocket both try to hide. We then see ladies along with Frigga (2013) walking. Thor sees his
