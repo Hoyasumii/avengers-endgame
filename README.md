@@ -1370,4 +1370,4 @@ THOR: Okay.
 
 ROCKET: Are you crying?
 
-THOR: No...Ye
+THOR: No...Yes
