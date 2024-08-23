@@ -2610,4 +2610,4 @@ NEBULA: But eventually, we become friends. We become sisters.
 
 [Gamora (2014) holds out her hand.]
 
-GAMORA (2014): Come on. We can sto
+GAMORA (2014): Come on. We can stop
