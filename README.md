@@ -1140,4 +1140,4 @@ RHODEY: Wai-Wait a second, let me ask you something. If we can do this, you know
 
 BRUCE BANNER: [Disgusted] First of all, that's horrible...
 
-RHODEY: [In a tone that says 
+RHODEY: [In a tone that says i
