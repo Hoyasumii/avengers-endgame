@@ -2716,4 +2716,4 @@ THOR: I knew it!
 
 [Thanos' (2014) kicks Thor to the ground and proceed to battle Steve dual wielding both his shield and Mjolnir (2013)]
 
-[Steve proceeds to charge at Thanos swinging Mjolnir (2013) and hitting Thanos in the face knocking him down. Steve throws his shield and Thanos (2014) deflects, Steve throws Mjolnir (2013) to his shield creating a shockwave and knocking Thanos (2014) off his feet. Steve goes on the offensive on
+[Steve proceeds to charge at Thanos swinging Mjolnir (2013) and hitting Thanos in the face knocking him down. Steve throws his shield and Thanos (2014) deflects, Steve throws Mjolnir (2013) to his shield creating a shockwave and knocking Thanos (2014) off his feet. Steve goes on the offensive on 
