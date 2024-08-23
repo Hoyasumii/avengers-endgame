@@ -328,4 +328,4 @@ STEVE ROGERS: That's great. You did the hardest part. You took the jump, you did
 
 [Screen Title: SAN FRANCISCO]
 
-(The camera pans to San Francisco Bridge, all the way to a self-storage facility with a sign sayi
+(The camera pans to San Francisco Bridge, all the way to a self-storage facility with a sign sayin
