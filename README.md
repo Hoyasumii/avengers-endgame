@@ -808,4 +808,4 @@ BRUCE BANNER: On the count of three. 3... 2... 1!
 
 [Bruce presses a button, and someone in the Ant-Man suit comes back. A teenager in appears out of it.]
 
-TEEN SCOTT LANG: Uh, guys? This...this doesn't feel 
+TEEN SCOTT LANG: Uh, guys? This...this doesn't feel r
