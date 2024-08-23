@@ -3059,4 +3059,4 @@ GROOT: I am Groot.
 
 QUILL: Not necessary...
 
-THOR: There shall be no knifing one a
+THOR: There shall be no knifing one an
