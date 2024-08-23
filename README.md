@@ -346,4 +346,4 @@ Scott Lang: [yells] Kid! Hey kid!
 
 Scott Lang: What the hell happened here?
 
-[The kid still sta
+[The kid still star
