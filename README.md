@@ -582,4 +582,4 @@ NATASHA ROMANOFF: Tony... We have to take a stand.
 
 TONY STARK: We did stand. And yet, here we are.
 
-SCOTT LANG: I know you got a lot on the line. You got a wife, a daughter. But I los
+SCOTT LANG: I know you got a lot on the line. You got a wife, a daughter. But I lost
