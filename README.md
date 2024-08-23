@@ -3107,4 +3107,4 @@ BRUCE BANNER: Going quantum. Three, two, one–
 
 [Steve disappears into the Quantum portal]
 
-BRUCE BANNER: And returning i
+BRUCE BANNER: And returning in
