@@ -2280,4 +2280,4 @@ HOWARD STARK: Seems very familiar. Weird beard.
 
 NEBULA (2014): You're weak.
 
-NEB
+NEBU
