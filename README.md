@@ -1568,4 +1568,4 @@ TONY STARK: Alright. I'll see you there.
 
 SITWELL (2012): Evidence secure. We're en route to Dr. List. No. No hitches at all, Mr. Secretary.
 
-[Elevator opens and HYDRA agents sees Steve
+[Elevator opens and HYDRA agents sees Steve.
