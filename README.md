@@ -3171,4 +3171,4 @@ Sam Wilson: Thank you. I'll do my best.
 
 Sam Wilson: [seeing elderly Steve's wedding ring] You wanna tell me about her?
 
-(OLD) STEVE ROGERS: [smiling] No. 
+(OLD) STEVE ROGERS: [smiling] No. N
