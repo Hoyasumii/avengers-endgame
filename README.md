@@ -2630,4 +2630,4 @@ THOR: Absolutely nothing.
 
 STEVE ROGERS: Where are the stones?
 
-TONY STARK: Somew
+TONY STARK: Somewh
