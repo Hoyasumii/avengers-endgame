@@ -2104,4 +2104,4 @@ TONY STARK: Your call.
 
 STEVE ROGERS: Here we go.
 
-[Cut to Steve a
+[Cut to Steve an
