@@ -2294,3 +2294,4 @@ NEBULA (2014): How do I look?
 
 [Scene cuts to Vormir 2014 where Natasha and Clint arrives.]
 
+C
