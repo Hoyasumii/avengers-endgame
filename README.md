@@ -890,4 +890,4 @@ STEVE ROGERS: Sounds like a deal. [Steve reaches out his hand to shake in the de
 
 [Tony reaches back into his trunk to pull something else out, Captain America's Shield. He makes to give it to Steve, who hesitates.]
 
-STEVE ROGERS: Tony
+STEVE ROGERS: Tony.
