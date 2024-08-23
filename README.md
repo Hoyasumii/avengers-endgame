@@ -1488,4 +1488,4 @@ GAMORA (2014): Her synaptic drive was probably damaged in battle.
 
 [Thanos walks towards Nebula and brings his blade to her throat.]
 
-THANOS (2014): Shhh... (pointing to Nebula
+THANOS (2014): Shhh... (pointing to Nebula)
