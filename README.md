@@ -610,4 +610,4 @@ SCOTT LANG: (Incredulous, pointing to Tony's house) Bigger than his?
 
 BRUCE BANNER: Come on, I feel like I'm the only one eating. [Pushing a plate forward] Try some of that. Have some eggs.
 
-SCOTT LANG:
+SCOTT LANG: 
