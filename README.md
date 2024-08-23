@@ -1666,4 +1666,4 @@ HULK (2012): NO STAIRS!!!!
 
 THOR (2012): You'll be fine, Stark. Stay with us! I'll try something, okay? I have no idea if it's gonna work.
 
-[Thor 2012 uses the Mjolnir as the def
+[Thor 2012 uses the Mjolnir as the defi
