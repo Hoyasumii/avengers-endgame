@@ -492,4 +492,4 @@ NATASHA ROMANOFF: Only to make conversation.
 
 SCOTT LANG: Alright. So... five years ago, right before Thanos, I was in a place called the Quantum Realm. The Quantum Realm is like its own microscopic universe. To get in there, you have to be incredibly small. Hope, she's my... She was my... [struggling to not tell the entire truth about their relationship] She was supposed to pull me out. And then Thanos happened, and I got stuck in there.
 
-NATASHA ROMANOFF: I'm sorry. That must've been a very
+NATASHA ROMANOFF: I'm sorry. That must've been a very 
