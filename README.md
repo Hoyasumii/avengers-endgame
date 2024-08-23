@@ -376,4 +376,4 @@ ROCKET: Yeah, we boarded that highly suspect warship Danvers pinged.
 
 NEBULA: It was an infectious garbage scowl.
 
-ROCKET: So, thanks for
+ROCKET: So, thanks for 
