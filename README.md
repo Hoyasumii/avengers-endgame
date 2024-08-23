@@ -828,4 +828,4 @@ TEEN SCOTT LANG: Yes, it's Scott!
 
 OLD SCOTT LANG: Ow! My back!
 
-STEVE ROGERS: What is t
+STEVE ROGERS: What is th
