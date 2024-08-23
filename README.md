@@ -402,4 +402,4 @@ ROCKET: [murmurs to himself] All right, all right, that's a good point. That's a
 
 CAROL DANVERS: So you might not see me for a long time.
 
-NATASHA ROMANOFF: Alright. Uh, well. This channel is always active. So, if anything goes sideways... anyone's making trouble where they
+NATASHA ROMANOFF: Alright. Uh, well. This channel is always active. So, if anything goes sideways... anyone's making trouble where they 
