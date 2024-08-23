@@ -602,4 +602,4 @@ STEVE ROGERS: He's not wrong.
 
 SCOTT LANG: Yeah, but I mean, what are we gonna do? We need him. What, are we gonna stop?
 
-STEVE ROGERS: No, I wanna do it right. We're 
+STEVE ROGERS: No, I wanna do it right. We're g
