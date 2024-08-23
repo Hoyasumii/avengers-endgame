@@ -2454,4 +2454,4 @@ THOR: I'll do it.
 
 TONY Stark: Excuse me?
 
-THOR: It's o
+THOR: It's ok
