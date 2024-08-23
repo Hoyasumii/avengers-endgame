@@ -2402,4 +2402,4 @@ RHODEY: You telling me this'll actually work?
 
 BRUCE BANNER: Clint, where's Nat?
 
-[The silence from Clint tells them all they need to know. The mission was completed but at a dire cost. Sadness overta
+[The silence from Clint tells them all they need to know. The mission was completed but at a dire cost. Sadness overtak
