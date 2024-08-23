@@ -1830,4 +1830,4 @@ FRIGGA (2013): What's wrong with your eye?
 
 THOR: Oh, my eye. That's... you remember the Battle of Haroquin? When I got hit in the face with a broadsword?
 
-FRIGGA (2013): You're not the Thor I k
+FRIGGA (2013): You're not the Thor I kn
