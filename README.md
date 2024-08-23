@@ -1072,4 +1072,4 @@ AKIHIKO: [Japanese]俺らがだと? 気でも狂ったか! (Orera ga dato? Ki de
 
 AKIHIKO: [in a Gatotsu-like sword stance] 死ね! (Romanized: Shine!) (English: DIE!)
 
-[They both draw their katanas and the sword-fight continues
+[They both draw their katanas and the sword-fight continues.
