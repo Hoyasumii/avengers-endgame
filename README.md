@@ -370,4 +370,4 @@ SCOTT LANG: You're so big!
 
 [The camera cuts to a sunset in San Francisco, showing a metal face with a sign saying in its headings, "RESTRICTED AREA, DO NOT ENTER" with the subtext, "AUTHORIZED PERSONNEL ONLY BEYOND THIS POINT, SECURITY ID OR ESCORT REQUIRED", then cuts to a scene inside the New Avengers facility, someone cutting the two bread with peanut butter filling into a couple of triangles, as someone else was speaking. The camera pans up to Romanoff, now having red, long hair, over-colouring her blonde streaks, hearing Rocket Raccoon out about his status so far.]
 
-ROCKET: Yeah, we boarded that highly suspect warship Da
+ROCKET: Yeah, we boarded that highly suspect warship Dan
