@@ -1232,4 +1232,4 @@ THOR: I'd like a Bloody Mary, thank you.
 
 ROCKET: Quill said he stole the Power Stone from Morag.
 
-SCOTT LANG: 
+SCOTT LANG: I
