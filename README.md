@@ -2382,4 +2382,4 @@ NATASHA ROMANOFF: You tell them yourself.
 
 [Natasha electrocutes Clint and she runs towards the cliff. Clint gets up and shoots an explosive arrow knocking her down. Clint then runs towards the cliff and jumps. Natasha jumps after him and hooks him up to a grappling hook]
 
-CLINT BARTON: Damn y
+CLINT BARTON: Damn yo
