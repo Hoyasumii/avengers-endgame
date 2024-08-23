@@ -2536,4 +2536,4 @@ SCOTT LANG: Guys– I think it worked!
 
 [Bruce opens his eyes and sees the Sanctuary II up in the sky and a single missile heading towards the base blowing away Scott away. Then a continuous array of missiles destroys the base completely and everyone sinks below to the underground.]
 
-[The camera pans over to see Bruce holding up tons of debris from collapsing on top of the other Avengers with his one good 
+[The camera pans over to see Bruce holding up tons of debris from collapsing on top of the other Avengers with his one good a
