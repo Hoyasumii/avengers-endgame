@@ -336,4 +336,4 @@ Scott Lang: (grunts as he pushes away a cushion out of his body, and deactivates
 
 Scott Lang: Hope?
 
-(Inside a security office, a security guard (Ken Jeong) reading a book as he looks upon his security screen, seeing something going o
+(Inside a security office, a security guard (Ken Jeong) reading a book as he looks upon his security screen, seeing something going on
