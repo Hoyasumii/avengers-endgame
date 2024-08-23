@@ -1288,4 +1288,4 @@ ROCKET:[Refers to Steve's speaking] He's pretty good at that.
 
 SCOTT LANG: Right? [Looks very excited]
 
-TONY STARK: All right. You heard the man. Stroke those keys, jolly gre
+TONY STARK: All right. You heard the man. Stroke those keys, jolly gree
