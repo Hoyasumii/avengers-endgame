@@ -3139,4 +3139,4 @@ Sam Wilson: Cap?
 
 [Old Steve looks over to Sam]
 
-Sam Wilson: So did something go wrong, or did somethi
+Sam Wilson: So did something go wrong, or did somethin
