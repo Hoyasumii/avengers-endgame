@@ -1462,4 +1462,4 @@ THANOS (2014): Ronan's located the Power Stone. I'm dispatching you to his ship.
 
 GAMORA (2014): He won't like that.
 
-THANOS 
+THANOS (
