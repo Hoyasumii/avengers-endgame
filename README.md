@@ -2817,4 +2817,4 @@ DOCTOR STRANGE: If I tell you what happens, it won't happen.
 
 TONY STARK: You better be right.
 
-[Cut to Scott an
+[Cut to Scott and
