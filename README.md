@@ -1494,4 +1494,4 @@ THANOS (2014): Shhh... (pointing to Nebula) Bring her to my ship.
 
 TONY STARK: Got to hustle, Cap. Things look like they're just about wrapped up here. [Cut to Steve in Stark Tower, walking towards the elevator.]
 
-STEVE ROGERS: G
+STEVE ROGERS: Go
