@@ -1099,3 +1099,4 @@ NATASHA ROMANOFF: Don't what?
 CLINT BARTON: ...don't give me hope.
 
 NATASHA: I'm sorry I couldn't give it to you sooner.
+
