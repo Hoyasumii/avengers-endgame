@@ -2946,3 +2946,4 @@ F.R.I.D.A.Y.: Life functions critical.
 PEPPER POTTS: Tony. Look at me. [She makes sure Tony gets a long look at her smiling face] We're gonna be okay. You can rest now.
 
 [With that acknowledgement, Tony's arc reactor flickers off for good. Pepper can no longer contain her grief and starts crying on his shoulder. Tony Stark, Iron Man, Earth's Best Defender, died. All the heroes gather, and kneel in honor of Tony.]
+
