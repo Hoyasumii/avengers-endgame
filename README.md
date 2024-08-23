@@ -2732,4 +2732,4 @@ SAM WILSON: Cap, it's Sam. Can you hear me?
 
 [A yellow portal begins to form behind him.]
 
-SAM WILSON: On your lef
+SAM WILSON: On your left
