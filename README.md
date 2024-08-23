@@ -3068,3 +3068,4 @@ THOR: Yes, you. Of course. Of course. Of course.
 [Scene cuts to Bruce, Steve, Sam and Bucky at the funeral]
 
 BRUCE BANNER: Now, remember– You have to return the stones to the exact moment you got them. Or you're gonna open up a bunch of nasty alternative realities.
+
