@@ -1711,3 +1711,4 @@ STEVE ROGERS: Bucky... is... alive!
 STEVE ROGERS (2012): What?
 
 [Future Steve takes the chance to sucker punch his counterpart, grab the scepter and knock Steve (2012) out, gets up and stares at him]
+
