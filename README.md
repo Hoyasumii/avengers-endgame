@@ -2028,4 +2028,4 @@ STEVE ROGERS: Well, what are we gonna do now?
 
 TONY STARK: You know what? Give me a break, Steve. I just got hit in the head with the Hulk.
 
-SCOTT LANG: You said that we had one shot. This– this was our shot. We shot it. It's shot. Six stones or
+SCOTT LANG: You said that we had one shot. This– this was our shot. We shot it. It's shot. Six stones or 
