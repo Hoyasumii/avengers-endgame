@@ -2476,4 +2476,4 @@ RHODEY: Cheez Whiz?
 
 THOR: Lightning.
 
-TONY STA
+TONY STAR
