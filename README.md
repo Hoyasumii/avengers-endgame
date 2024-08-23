@@ -2999,3 +2999,4 @@ VALKYRIE: That's funny. You're being serious?
 
 [Thor nods his head]
 
+T
