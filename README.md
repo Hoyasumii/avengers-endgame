@@ -1848,4 +1848,4 @@ FRIGGA (2013): Yes, you are.
 
 THOR: I really need to talk to you.
 
-FRIGGA (2013): We can 
+FRIGGA (2013): We can t
