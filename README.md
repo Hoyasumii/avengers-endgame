@@ -2967,4 +2967,4 @@ WANDA MAXIMOFF: She knows– They both do.
 
 [Clint gives her a side hug and Wanda reciprocates.]
 
-[scene
+[scene 
