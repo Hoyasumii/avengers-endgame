@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being n
+(The screen first panels up to an arrow being no
