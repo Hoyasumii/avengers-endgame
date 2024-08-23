@@ -1300,4 +1300,4 @@ ROCKET: As promises go, that was pretty lame.
 
 NATASHA ROMANOFF: [Smiling excitedly] See you in a minute.
 
-[They all shrink and enter the Quantum Realm, and they all split at different intervals, going to a different place at a different tim
+[They all shrink and enter the Quantum Realm, and they all split at different intervals, going to a different place at a different time
