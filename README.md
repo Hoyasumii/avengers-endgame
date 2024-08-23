@@ -2680,4 +2680,4 @@ GAMORA (2014): Stop.
 
 NEBULA (2014): You're betraying us?
 
-[With her hands up, Nebula joins Gamora (2014). Nebula (201
+[With her hands up, Nebula joins Gamora (2014). Nebula (2014
