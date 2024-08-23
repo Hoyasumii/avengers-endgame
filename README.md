@@ -2981,4 +2981,4 @@ HAPPY: What do you want?
 
 MORGAN STARK: Cheeseburgers.
 
-HAPPY: You know your dad liked cheeseb
+HAPPY: You know your dad liked cheesebu
