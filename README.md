@@ -2706,4 +2706,4 @@ GAMORA (2014): NO!
 
 TONY STARK: Okay, Thor. Hit me.
 
-[Thor bangs his 2 h
+[Thor bangs his 2 ha
