@@ -678,4 +678,4 @@ BRUCE BANNER: Listen to your Mom. She knows better.
 
 STEVE ROGERS: About we were saying...
 
-BRUCE BANNER: Right. The whole time travel do-over? Guys, it's outside my area of
+BRUCE BANNER: Right. The whole time travel do-over? Guys, it's outside my area of 
