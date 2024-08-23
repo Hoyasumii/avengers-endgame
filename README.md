@@ -1696,4 +1696,4 @@ STEVE ROGERS: [Puts the case down] I'm not Loki. And I don't wanna hurt you.
 
 [2012 Steve engages and the two Captain Americas begin to duel.]
 
-STEVE ROGERS (2012): I can do this 
+STEVE ROGERS (2012): I can do this a
