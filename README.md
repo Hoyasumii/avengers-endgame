@@ -2190,4 +2190,4 @@ CAPTAIN STEVENS (STEVE ROGERS): Well, that's the thing, sir. We can't.
 
 HANK PYM: I'm confused. I thought that was your job.
 
-CAPTAIN STEVENS (STEVE ROGERS): Well, it's just– Sir, the box is glowing and, to be h
+CAPTAIN STEVENS (STEVE ROGERS): Well, it's just– Sir, the box is glowing and, to be ho
