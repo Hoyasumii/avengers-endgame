@@ -1,1 +1,1 @@
-(The screen first panels up to a
+(The screen first panels up to an
