@@ -3017,4 +3017,4 @@ ROCKET: Move it or lose it, hairbag.
 
 [scene cuts to Quill searching for Gamora on the screen as Thor walks in he closes it]
 
-THOR: Well, here we are. Tree! Good to see you. Well– [Thor removes his shades and taps Quill on the shoulder] The Asgardians of the Galaxy, back together again. Where to first? [Th
+THOR: Well, here we are. Tree! Good to see you. Well– [Thor removes his shades and taps Quill on the shoulder] The Asgardians of the Galaxy, back together again. Where to first? [Tho
