@@ -3151,4 +3151,4 @@ Sam Wilson: I'm happy for you. Truly.
 
 (OLD) STEVE ROGERS: Thank you.
 
-Sam Wilson: Only thing bumming me out is the fact I have to live in a world without
+Sam Wilson: Only thing bumming me out is the fact I have to live in a world without 
