@@ -2678,4 +2678,4 @@ GAMORA (2014): Stop.
 
 [Gamora (2014) come around the corner]
 
-NEBULA (201
+NEBULA (2014
