@@ -2734,4 +2734,4 @@ SAM WILSON: Cap, it's Sam. Can you hear me?
 
 SAM WILSON: On your left.
 
-[Steve looks behind to see the portal on his left side. Three figures step through; Okoye, Shuri, 
+[Steve looks behind to see the portal on his left side. Three figures step through; Okoye, Shuri, a
