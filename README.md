@@ -2613,3 +2613,4 @@ NEBULA: But eventually, we become friends. We become sisters.
 GAMORA (2014): Come on. We can stop him.
 
 [Nebula takes it]
+
