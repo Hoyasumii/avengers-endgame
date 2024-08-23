@@ -1930,4 +1930,4 @@ NEBULA: Yeah.
 
 RHODEY: What's that?
 
-NEBULA: Th
+NEBULA: The
