@@ -1074,4 +1074,4 @@ AKIHIKO: [in a Gatotsu-like sword stance] 死ね! (Romanized: Shine!) (English: 
 
 [They both draw their katanas and the sword-fight continues. Ronin is clearly a better fighter, but Akihiko is also quite experienced. They clang swords, and for a second, it looks like Akihiko has the upper hand swinging at Ronin's neck. Ronin, however, ducks and slides under the katana, and slices Akihiko in the stomach as he slides past. Akihiko, now fatally injured, drops his katana.]
 
-AKIHIKO: 待て! 助けてくれ! お前に何でもやる! 何が欲しい? (Romanized: Mate! Tasukete kure! Omae ni nan demo yaru! Nani ga hosī? (
+AKIHIKO: 待て! 助けてくれ! お前に何でもやる! 何が欲しい? (Romanized: Mate! Tasukete kure! Omae ni nan demo yaru! Nani ga hosī? (E
