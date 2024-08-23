@@ -1576,4 +1576,4 @@ STEVE ROGERS: Change of plans.
 
 RUMLOW (2012): Hey, Cap.
 
-STEVE ROGERS: Rumlow. [every
+STEVE ROGERS: Rumlow. [everyo
