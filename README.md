@@ -1014,4 +1014,4 @@ KORG: Um, yeah. We don't actually say that name in here.
 
 BRUCE BANNER: [quietly] Please take your hand off me. [He brushes away Thor's hand] Now, I know that... guy might scare you.
 
-THOR: Why would I be? Why would, why would I be scared of that guy? I'm the one who killed that guy, remember? Anyone else here killed that guy? Nope. Didn't think so. Korg, why don't you, tell everybody who ch
+THOR: Why would I be? Why would, why would I be scared of that guy? I'm the one who killed that guy, remember? Anyone else here killed that guy? Nope. Didn't think so. Korg, why don't you, tell everybody who cho
