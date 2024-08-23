@@ -2178,4 +2178,4 @@ HOWARD STARK: You're not one of those beatniks, are ya, Potts?
 
 [Cut to a younger Hank Pym in his laboratory.]
 
-CAPTAIN S
+CAPTAIN ST
