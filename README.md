@@ -2335,3 +2335,4 @@ CLINT BARTON: Why, 'cause he knows your Daddy's name?
 NATASHA ROMANOFF: I didn't. Thanos left here with the stone without his daughter. It's not a coincidence.
 
 CLINT BARTON: Yeah.
+
