@@ -2614,4 +2614,4 @@ GAMORA (2014): Come on. We can stop him.
 
 [Nebula takes it]
 
-[Scene cuts to Tony walking towards Steve who's uncon
+[Scene cuts to Tony walking towards Steve who's uncons
