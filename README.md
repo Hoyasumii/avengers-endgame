@@ -1926,4 +1926,4 @@ RHODEY: So he's an idiot?
 
 NEBULA: Yeah.
 
-[Rhodey knocks out Quill and Nebula rummages a
+[Rhodey knocks out Quill and Nebula rummages ar
