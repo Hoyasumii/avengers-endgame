@@ -2867,4 +2867,4 @@ THANOS (2014): Just do it!
 
 PEPPER POTTS: Uh, is anyone else seeing this?
 
-[Doctor Strange looks at the broken dam and uses h
+[Doctor Strange looks at the broken dam and uses hi
