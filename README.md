@@ -1608,4 +1608,4 @@ THOR (2012): To lunch and then Asgard. I'm sorry, you are?
 
 TONY STARK (2012): Alexander Pierce. He's the man, one of the folks behind Nick Fury.
 
-ALEXANDER PIERCE (2012): My friends call me Mr. Secretary. I'm gonna have to ask you to turn that pris
+ALEXANDER PIERCE (2012): My friends call me Mr. Secretary. I'm gonna have to ask you to turn that priso
