@@ -346,4 +346,4 @@ Scott Lang: [yells] Kid! Hey kid!
 
 Scott Lang: What the hell happened here?
 
-[The kid still stares at him and is almost about to tear up, but immediately turns
+[The kid still stares at him and is almost about to tear up, but immediately turns 
