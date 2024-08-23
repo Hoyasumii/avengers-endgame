@@ -1752,4 +1752,4 @@ BRUCE BANNER: I have no idea. Maybe he made a mistake.
 
 THE ANCIENT ONE (2012): Or I did. [She returns to Banner control of his Hulk body and opens the Eye of Agamotto, revealing the Time Stone] Strange is meant to be the best of us.
 
-BRU
+BRUC
