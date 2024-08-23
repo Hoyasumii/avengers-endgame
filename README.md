@@ -2957,4 +2957,4 @@ TONY STARK (hologram): So I thought I'd probably better record a little greeting
 
 [The message ends and the hologram cuts out.]
 
-[Cut to outside the cottage. Pepper carries a wreath out of the house to an audience waiting outside for the intimate funeral. She lays the wreath on the lake. On top of the wreath is Tony's first arc reactor which Pepper had framed with the words "Proof That Tony Stark Has a Heart" back in 2008. 
+[Cut to outside the cottage. Pepper carries a wreath out of the house to an audience waiting outside for the intimate funeral. She lays the wreath on the lake. On top of the wreath is Tony's first arc reactor which Pepper had framed with the words "Proof That Tony Stark Has a Heart" back in 2008. T
