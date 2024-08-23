@@ -884,4 +884,4 @@ TONY STARK: Oh, did I? [acting like he did not; there's the Tony we know] Thank 
 
 STEVE ROGERS: Me too.
 
-TONY STARK: We got a shot at getting these stones, but I
+TONY STARK: We got a shot at getting these stones, but I 
