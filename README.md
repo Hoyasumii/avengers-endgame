@@ -1828,4 +1828,4 @@ THOR: I always wear this. This is one of my favorites.
 
 FRIGGA (2013): What's wrong with your eye?
 
-THOR: Oh, my eye. That's... you remember the Battle of Haroquin? When I got hit in the face with a br
+THOR: Oh, my eye. That's... you remember the Battle of Haroquin? When I got hit in the face with a bro
