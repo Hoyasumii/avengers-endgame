@@ -58,4 +58,4 @@ TONY STARK: And... you've won. Congratulations. [Tony reaches his hand out to sh
 
 TONY STARK: Fair game. Good sport. [Nebula shakes Tony's hand] Have fun?
 
-NEBULA: It was 
+NEBULA: It was f
