@@ -100,4 +100,4 @@ TONY STARK: What's wrong with him?
 
 ROCKET: Oh, he's pissed. He thinks he failed. Which of course he did, but you know there's a lot of that's going around, ain't there?
 
-TONY STARK: Honestly, until this exact second, I literaly thought you were a B
+TONY STARK: Honestly, until this exact second, I literaly thought you were a Bu
