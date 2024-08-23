@@ -3047,4 +3047,4 @@ THOR: It's not.
 
 QUILL: Okay?
 
-ROCKET: I got some blasters, unless you guys wanna use kn
+ROCKET: I got some blasters, unless you guys wanna use kni
