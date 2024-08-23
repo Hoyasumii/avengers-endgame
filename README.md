@@ -938,4 +938,4 @@ VALKYRIE: [Eyeing Rocket] He won't see you.
 
 BRUCE BANNER: That bad, huh?
 
-VALKYRIE: We only see him once a month, when he comes for... [looking over to a pile of ke
+VALKYRIE: We only see him once a month, when he comes for... [looking over to a pile of keg
