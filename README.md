@@ -3063,4 +3063,4 @@ THOR: There shall be no knifing one another. Everybody knows who's in charge.
 
 QUILL: [glances at Thor] Me, right?
 
-THOR: Yes, you. Of course. Of course. Of 
+THOR: Yes, you. Of course. Of course. Of c
