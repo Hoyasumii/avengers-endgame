@@ -1246,4 +1246,4 @@ NEBULA: Thanos found the Soul Stone on Vormir.
 
 NATASHA ROMANOFF: [In a business-like tone] What is Vormir?
 
-NEBULA: A d
+NEBULA: A do
