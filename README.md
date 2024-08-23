@@ -1212,4 +1212,4 @@ CLINT BARTON: Which means we have to pick our targets.
 
 TONY STARK: Correct.
 
-STEVE ROGERS: Let's start wit
+STEVE ROGERS: Let's start with
