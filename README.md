@@ -86,4 +86,4 @@ TONY STARK: It's okay.
 
 [Rocket Raccoon sits down with Nebula and takes her hand, both silently mourning their losses. In the Avengers Compound. The heroes are sitting in a living room area. Tony is sitting at a table, getting blood for healing. A holographic casualty report lists the names and faces of those lost to the Decimation.]
 
-JAMES RHODES: It's been 23 days s
+JAMES RHODES: It's been 23 days si
