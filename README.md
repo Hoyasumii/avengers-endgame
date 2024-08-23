@@ -1932,4 +1932,4 @@ RHODEY: What's that?
 
 NEBULA: The tool of a thief.
 
-[Nebula uses the tool to open the door
+[Nebula uses the tool to open the door 
