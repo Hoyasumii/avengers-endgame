@@ -1438,4 +1438,4 @@ GAMORA (2014): [Helping Nebula up] You're welcome.
 
 NEBULA (2014): I didn't ask for your help.
 
-GAMORA (2014): And yet, you alwa
+GAMORA (2014): And yet, you alway
