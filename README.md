@@ -2112,4 +2112,4 @@ TONY STARK: Clearly, you weren't actually born here, right?
 
 STEVE ROGERS: The idea of me was.
 
-TONY STARK: Right. Well, imagine you're SHIELD, running a quasi-fascistic intelli
+TONY STARK: Right. Well, imagine you're SHIELD, running a quasi-fascistic intellig
