@@ -3015,4 +3015,4 @@ THOR: I'm not sure. For the first time in a thousand years, I– I have no path.
 
 ROCKET: Move it or lose it, hairbag.
 
-[scene cuts to Quill searching for Gamora on the screen as Thor walks in he clo
+[scene cuts to Quill searching for Gamora on the screen as Thor walks in he clos
