@@ -1064,4 +1064,4 @@ RONIN: [As he draws out his katana and reversibly wields it.]地球の半分 サ
 
 RONIN: [Also in Japanese] お前はもう十分殺しただろ(Romanized:Omae mo jūbun korshita daro) You're done hurting people.
 
-AKIHIKO: [Japanese]俺らが
+AKIHIKO: [Japanese]俺らがだ
