@@ -1680,4 +1680,4 @@ THOR (2012): The case. It's, uhh... Where's the case? Where's Loki? Loki!
 
 SCOTT LANG: That wasn't supposed to happen, was it?
 
-TONY STARK: Oh, we blew 
+TONY STARK: Oh, we blew i
