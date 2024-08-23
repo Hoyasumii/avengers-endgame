@@ -3019,4 +3019,4 @@ ROCKET: Move it or lose it, hairbag.
 
 THOR: Well, here we are. Tree! Good to see you. Well– [Thor removes his shades and taps Quill on the shoulder] The Asgardians of the Galaxy, back together again. Where to first? [Thor touches the screens map to pick their destination]
 
-QUILL: Hey, just so you know, this is my ship still
+QUILL: Hey, just so you know, this is my ship still.
