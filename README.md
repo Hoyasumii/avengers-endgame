@@ -2658,4 +2658,4 @@ RHODEY: See you on the other side, man.
 
 SCOTT LANG: Hang on! I'm coming!
 
-[Hawkeye is running with the infinity gauntlet. He blows 
+[Hawkeye is running with the infinity gauntlet. He blows t
