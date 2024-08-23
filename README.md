@@ -1990,4 +1990,4 @@ THANOS (2014): It's my destiny.
 
 NEBULA (Memory): My father is many things. A liar is not one of them.
 
-THANOS (Memo
+THANOS (Memor
