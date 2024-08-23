@@ -450,4 +450,4 @@ STEVE ROGERS: You know I saw a pod of whales when I was coming up the bridge.
 
 NATASHA ROMANOFF: In the Hudson?
 
-STEVE ROGERS: There's fewer ships, cleaner wat
+STEVE ROGERS: There's fewer ships, cleaner wate
