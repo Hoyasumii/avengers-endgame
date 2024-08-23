@@ -1482,4 +1482,4 @@ NEBULA (Memory): Let's take cover. We're not the only ones in 2014 looking for t
 
 GAMORA (2014): Who was that?
 
-NEBULA (2014): I don't know...My 
+NEBULA (2014): I don't know...My h
