@@ -1470,4 +1470,4 @@ NEBULA (2014): We will not fail you, Father.
 
 THANOS (2014): No, you won't.
 
-NEBULA (2014): I swear...I will mak
+NEBULA (2014): I swear...I will make
