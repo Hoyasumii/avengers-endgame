@@ -1222,4 +1222,4 @@ RHODEY: No, I'm pretty sure he's dead.
 
 [Thor wakes up]
 
-THOR: Where to start? Umm... The Aether, first, is not a stone, someone called it a stone before. It's more of a... an angry sludge thing, so... someones gonn
+THOR: Where to start? Umm... The Aether, first, is not a stone, someone called it a stone before. It's more of a... an angry sludge thing, so... someones gonna
