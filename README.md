@@ -1983,3 +1983,4 @@ THANOS (2014): I found them all. I won. Tipped the cosmic scales to balance.
 [Thanos (2014) caress Gamora (2014) and she kneels down]
 
 EBONY MAW (2014): This is your future.
+
