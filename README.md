@@ -2478,4 +2478,4 @@ THOR: Lightning.
 
 TONY STARK: Yeah.
 
-BRUCE: Lightning won't help you, pal. It's g
+BRUCE: Lightning won't help you, pal. It's go
