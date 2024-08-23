@@ -3131,4 +3131,4 @@ BUCKY BARNES: Sam...
 
 BUCKY BARNES: Go ahead.
 
-[Bucky has a smile forming and looks over to Sam. He walks towards 
+[Bucky has a smile forming and looks over to Sam. He walks towards t
