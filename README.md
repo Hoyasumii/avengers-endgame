@@ -2460,4 +2460,4 @@ EVERYONE: (holding up Thor) No, no, no, whoa. Stop. Stop. Wait a sec. Wait, wait
 
 STEVE ROGERS: Thor, just wait. We haven't decided who's gonna put that on yet. THOR: I'm sorry. What, we're just sitting around waiting for the right opportunity?
 
-SCOTT LANG: We should at le
+SCOTT LANG: We should at lea
