@@ -1746,3 +1746,4 @@ THE ANCIENT ONE (2012): Willingly?
 
 BRUCE BANNER: Yes!
 
+T
