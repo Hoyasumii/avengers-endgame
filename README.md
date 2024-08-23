@@ -342,4 +342,4 @@ Scott Lang: Hope?
 
 Scott Lang: [yells] Kid! Hey kid!
 
-[The kid stops his bike as he stares back in a seriou
+[The kid stops his bike as he stares back in a serious
