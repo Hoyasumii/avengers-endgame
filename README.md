@@ -1412,4 +1412,4 @@ RHODEY: You guys watch each other's six.
 
 CLINT BARTON: Yeah.
 
-[They walk back into the
+[They walk back into the 
