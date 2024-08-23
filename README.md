@@ -614,4 +614,4 @@ SCOTT LANG: I'm so confused.
 
 BRUCE BANNER: [seriously] These are confusing times.
 
-SCOTT LANG: Right. No
+SCOTT LANG: Right. No,
