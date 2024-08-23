@@ -1612,4 +1612,4 @@ ALEXANDER PIERCE (2012): My friends call me Mr. Secretary. I'm gonna have to ask
 
 THOR (2012): Loki will be answering to Odin himself.
 
-ALEXANDER PIERCE (2012): Oh, he's gonna answer to us. Odi
+ALEXANDER PIERCE (2012): Oh, he's gonna answer to us. Odin
