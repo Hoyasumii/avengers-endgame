@@ -2590,4 +2590,4 @@ NEBULA (2014): Thank you, Father. They suspected nothing.
 
 THANOS (2014): The arrogant never do.
 
-[Thanos th
+[Thanos the
