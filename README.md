@@ -2825,4 +2825,4 @@ SCOTT LANG: It's– it's dead.
 
 THE WASP: What?
 
-SCOTT LANG: It's dead. I have to hotwire i
+SCOTT LANG: It's dead. I have to hotwire it
