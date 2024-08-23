@@ -1492,4 +1492,4 @@ THANOS (2014): Shhh... (pointing to Nebula) Bring her to my ship.
 
 [Cut to present Tony Stark flying around Stark Tower in the Mark 85. He scans the interior of the tower, and sees the original Avengers apprehending Loki, the backside of the iconic shot of Hawkeye pointing the bow at Loki's face while the Avengers surround him.]
 
-TONY STARK: Got to hustle, Cap. Things look like they're just about wrapped up here. [Cut to Steve in Stark
+TONY STARK: Got to hustle, Cap. Things look like they're just about wrapped up here. [Cut to Steve in Stark 
