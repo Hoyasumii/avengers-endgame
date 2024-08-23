@@ -2855,4 +2855,4 @@ PETER PARKER: Activate Instant Kill!
 
 [The Robotic Spider Legs come out of his back, stabbing the Chitauri.]
 
-[Thanos tries to kill Wanda w
+[Thanos tries to kill Wanda wi
