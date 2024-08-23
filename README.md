@@ -1728,4 +1728,4 @@ THE ANCIENT ONE (2012): The Infinity Stones create what you experience as the fl
 
 BRUCE BANNER: No, but we can erase it. Because once we are done with the stones, we can return each one to its own timeline at the moment it was taken. So, chronologically, [Holds the Time Stone projection] in that reality, [puts it back to its spot] it never left.
 
-[Bruce's astral form takes the projection of the removed Time Stone, replaces it back 
+[Bruce's astral form takes the projection of the removed Time Stone, replaces it back a
