@@ -2710,4 +2710,4 @@ TONY STARK: Okay, Thor. Hit me.
 
 F.R.I.D.A.Y: Boss, wake up!
 
-[Steve tries to attack Thanos but is easi
+[Steve tries to attack Thanos but is easil
