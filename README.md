@@ -1058,4 +1058,4 @@ THUG #1: あいつだ! アキヒコさんを！(Romanized: Aitsu da! Akihiko-san
 
 AKIHIKO: てめえ なぜこんなことをする? 俺たちてめえになにもしてねぇだろ！(Romanized: Temē naze konna koto wo suru? Oretachi temē ni nani mo shitenē daro!) (English: Why are you doing this? We never did anything to you!)
 
-RONIN: [As he draws out his katana and reversibly w
+RONIN: [As he draws out his katana and reversibly wi
