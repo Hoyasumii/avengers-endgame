@@ -2228,4 +2228,4 @@ SECURITY OFFICER: And you've never seen these two men before?
 
 ELEVATOR LADY: No, I've got an eye for this. The two of them looked fishy.
 
-SECURITY OFFICER: Can you describe them
+SECURITY OFFICER: Can you describe them?
