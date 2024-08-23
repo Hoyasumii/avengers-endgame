@@ -764,4 +764,4 @@ TONY STARK: Yeah, I know.
 
 PEPPER POTTS: A lot of people didn't.
 
-TONY STARK: No, I can't help everybod
+TONY STARK: No, I can't help everybody
