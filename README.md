@@ -340,4 +340,4 @@ Scott Lang: Hope?
 
 (Outside the facility, he pulls out a pushcart and looks back seeing the guard giving a stern look from far. He walks around until reaching his hometown, finding a post filled with MISSING posters, abandoned houses, a wrecked car, nothing but desolation. He then sees a kid in a bike pass by.)
 
-Scott Lang: [yell
+Scott Lang: [yells
