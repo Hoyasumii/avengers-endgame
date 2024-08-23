@@ -1954,4 +1954,4 @@ RHODEY: Me either. But we work with what we got, right?
 
 RHODEY: Sync up. [They both suit up.] Three.. two.. one...
 
-[Rhodey i
+[Rhodey is
