@@ -3023,4 +3023,4 @@ QUILL: Hey, just so you know, this is my ship still. I'm in charge.
 
 THOR: I know. I know. Of course, you are. Of course.
 
-QUILL: See, you say of course, but then you touch the map. It makes you think that maybe you didn't realize I was in charge
+QUILL: See, you say of course, but then you touch the map. It makes you think that maybe you didn't realize I was in charge.
