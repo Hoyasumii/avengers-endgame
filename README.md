@@ -1926,4 +1926,4 @@ RHODEY: So he's an idiot?
 
 NEBULA: Yeah.
 
-[Rhodey knock
+[Rhodey knocks
