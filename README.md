@@ -642,4 +642,4 @@ BRUCE BANNER: Thanks, [To the Children] Say "green"! [The children and Bruce say
 
 BRUCE BANNER: Did you get that?
 
-SCOTT LANG: [leaning forward to hand back the phon
+SCOTT LANG: [leaning forward to hand back the phone
