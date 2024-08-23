@@ -372,4 +372,4 @@ SCOTT LANG: You're so big!
 
 ROCKET: Yeah, we boarded that highly suspect warship Danvers pinged.
 
-[The camera cuts showing a few of the Avengers in holographic calls from the left to right, respectively: Nebula and Rocket Racco
+[The camera cuts showing a few of the Avengers in holographic calls from the left to right, respectively: Nebula and Rocket Raccoo
