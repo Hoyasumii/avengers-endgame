@@ -970,4 +970,4 @@ KORG: Hey boys!
 
 BRUCE BANNER: Hey guys, long time no see.
 
-KORG: Beer's on the bucket. Feel free to log on to the Wi-Fi. No password, obviously. [He goes back to his game.] Thor, he's b
+KORG: Beer's on the bucket. Feel free to log on to the Wi-Fi. No password, obviously. [He goes back to his game.] Thor, he's ba
