@@ -238,4 +238,4 @@ ROCKET: You better not throw up on my ship.
 
 NEBULA: Approaching jump in 3... 2... 1!
 
-[The ship jumps f
+[The ship jumps fo
