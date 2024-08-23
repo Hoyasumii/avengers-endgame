@@ -1154,4 +1154,4 @@ CLINT BARTON: Well, that's what I heard.
 
 BRUCE BANNER: What? By who? Who told you that?
 
-RHODEY: [counting with his fing
+RHODEY: [counting with his finge
