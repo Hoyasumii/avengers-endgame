@@ -2504,4 +2504,4 @@ TONY STARK: F.R.I.D.A.Y., do me a favor and activate Barn Door Protocol. Will yo
 
 F.R.I.D.A.Y.: Yes, boss.
 
-[Avengers facilit
+[Avengers facility
