@@ -1132,4 +1132,4 @@ CLINT BARTON: I'm game. I'll do it.
 
 [Clint walks in wearing the suit Scott was moments before, the Quantum Suit.]
 
-BRUCE BANNER: Clint, now you're gonna feel a little discombobulated from the chronoshift. 
+BRUCE BANNER: Clint, now you're gonna feel a little discombobulated from the chronoshift. D
