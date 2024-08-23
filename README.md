@@ -976,4 +976,4 @@ THOR: NoobMaster.
 
 KORG: Yeah, NoobMaster69 called me a dickhead.
 
-[Thor walks over to Ko
+[Thor walks over to Kor
