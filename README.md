@@ -3141,4 +3141,4 @@ Sam Wilson: Cap?
 
 Sam Wilson: So did something go wrong, or did something go right?
 
-(OLD) STEVE ROGERS: Well, after I put
+(OLD) STEVE ROGERS: Well, after I put 
