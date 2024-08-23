@@ -1724,4 +1724,4 @@ BRUCE BANNER: With all due respect, I'm not sure the science really supports tha
 
 [The Ancient One creates a projection with a long ray that simulates the flow of time.]
 
-THE ANCIENT O
+THE ANCIENT ON
