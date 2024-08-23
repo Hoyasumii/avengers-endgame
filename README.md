@@ -2734,4 +2734,4 @@ SAM WILSON: Cap, it's Sam. Can you hear me?
 
 SAM WILSON: On your left.
 
-[Steve looks behind to see the portal on his left side. Three figures step through; Okoye, Shuri, and Black Panther, fully restored and ready to fight. Steve and the revived Wakandans share a look when Sam zooms in from above in his Falcon armor. As he does, 
+[Steve looks behind to see the portal on his left side. Three figures step through; Okoye, Shuri, and Black Panther, fully restored and ready to fight. Steve and the revived Wakandans share a look when Sam zooms in from above in his Falcon armor. As he does, w
