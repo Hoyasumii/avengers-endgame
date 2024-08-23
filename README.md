@@ -954,4 +954,4 @@ THOR: [From another room.] Are you here about the cable?
 
 [He walks into view, and the audience's jaw drops. Thor, who is shirtless, has definitely put on more than a couple of pounds since we saw him last.]
 
-THOR: The Cinemax ran out about two week
+THOR: The Cinemax ran out about two weeks
