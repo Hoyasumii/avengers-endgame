@@ -2554,4 +2554,4 @@ BRUCE BANNER: Rhodey!
 
 [A flood engulfs both Rhodey and Rocket]
 
-[Scene cuts to Sc
+[Scene cuts to Sco
