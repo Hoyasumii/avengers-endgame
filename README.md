@@ -1476,4 +1476,4 @@ NEBULA (2014): I swear...I will make you proud.
 
 RHODEY (Memory): We just, wait around for this Quill guy to show up, and then he leads us to the Power Stone, is that it?
 
-NEBULA (Memory): Let's take cov
+NEBULA (Memory): Let's take cove
