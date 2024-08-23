@@ -1588,4 +1588,4 @@ SITWELL (2012): I'm gonna have to call the Director.
 
 STEVE ROGERS: That's okay. Trust me. [Steve leans over to Sitwell's ear.] Hail Hydra.
 
-[Everyone is surprised, Steve walks out of the elevator with the scepter and a smile. Cut to the building's stairwell. The Hulk looks
+[Everyone is surprised, Steve walks out of the elevator with the scepter and a smile. Cut to the building's stairwell. The Hulk looks 
