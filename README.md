@@ -2890,3 +2890,4 @@ F.R.I.D.A.Y.: Something just entered the upper atmosphere.
 [A bright light of thundering energy comes surging down as Carol Danvers flies through the ship, and it results in an explosion and the ship crash-landing in the lake]
 
 ROCKET: Oh, yeah!
+
