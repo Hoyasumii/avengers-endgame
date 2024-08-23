@@ -1032,4 +1032,4 @@ THOR: [walks over and looks out the window and points, still holding his beer] W
 
 BRUCE BANNER: I think we can bring them back.
 
-THOR: Stop. stop, okay? [opens a packet on M&Ms] I know you think I'm down here wallowing in my own self-pity, waiting to be rescued and and saved. But I'm fine, okay? We'r
+THOR: Stop. stop, okay? [opens a packet on M&Ms] I know you think I'm down here wallowing in my own self-pity, waiting to be rescued and and saved. But I'm fine, okay? We're
