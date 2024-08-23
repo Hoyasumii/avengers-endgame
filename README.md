@@ -2222,4 +2222,4 @@ TONY STARK: What'd be so awful about that?
 
 HOWARD STARK: Let's just say that the greater good has rarely outweighed my own self-interests.
 
-[cut to elevator lady talking to security guards 
+[cut to elevator lady talking to security guards a
