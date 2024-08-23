@@ -1706,4 +1706,4 @@ STEVE ROGERS (2012): Where did you get this?
 
 [Steve (2012) has future Steve in a chokehold]
 
-S
+ST
