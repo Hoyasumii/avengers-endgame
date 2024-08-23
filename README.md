@@ -2933,4 +2933,4 @@ PEPPER POTTS: Hey.
 
 TONY STARK: [quietly] Hey, Pep..
 
-[Pepper places her hand on Tony's Arc Reactor and Tony rest
+[Pepper places her hand on Tony's Arc Reactor and Tony rests
