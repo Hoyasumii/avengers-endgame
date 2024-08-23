@@ -3091,4 +3091,4 @@ BUCKY BARNES: Gonna miss you, Buddy.
 
 STEVE ROGERS: It's gonna be okay, Buck.
 
-[Steve goes over to th
+[Steve goes over to the
