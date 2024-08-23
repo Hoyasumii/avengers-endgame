@@ -1912,3 +1912,4 @@ FRIGGA (2013): Oh, sometimes it takes a second.
 
 THOR: [Happy and a little bit surprised] I'm still worthy.
 
+[
