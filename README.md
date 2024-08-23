@@ -396,4 +396,4 @@ CAROL DANVERS: Not likely.
 
 ROCKET: What, you gonna get another haircut?
 
-CAROL DANVERS: [irritated] Listen fur-face, I'm covering a lot of
+CAROL DANVERS: [irritated] Listen fur-face, I'm covering a lot of 
