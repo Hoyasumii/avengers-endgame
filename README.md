@@ -3079,4 +3079,4 @@ Sam Wilson: You know, if you want, I can come with you.
 
 STEVE ROGERS: You're a good man, Sam. This one's on me, though.
 
-[Steve goes over to Buck
+[Steve goes over to Bucky
