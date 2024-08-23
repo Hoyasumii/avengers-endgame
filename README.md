@@ -726,4 +726,4 @@ TONY STARK: You done? Yeah, now you are. [Tony wipes Morgan's lips and pushes he
 
 MORGAN STARK: Tell me a story.
 
-TONY STARK: A story... Onc
+TONY STARK: A story... Once
