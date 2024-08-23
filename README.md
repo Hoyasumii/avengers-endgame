@@ -2260,4 +2260,4 @@ TONY STARK: I thought my dad was tough on me. And now, looking back, I just reme
 
 HOWARD STARK: Yeah? Like what?
 
-TONY STARK: "No amoun
+TONY STARK: "No amount
