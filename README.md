@@ -1800,4 +1800,4 @@ THANOS (2014): Avengers. Unruly wretches. What's that reflection? Amplify this, 
 
 GAMORA (2014): [Looking at a reflection of Nebula (2023)] I don't understand. Two Nebulas.
 
-THANOS (2014): No. The same Nebula. From two different times. Set cour
+THANOS (2014): No. The same Nebula. From two different times. Set cours
