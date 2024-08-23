@@ -1066,4 +1066,4 @@ RONIN: [Also in Japanese] お前はもう十分殺しただろ(Romanized:Omae mo
 
 AKIHIKO: [Japanese]俺らがだと? 気でも狂ったか! (Orera ga dato? Ki demo kurutta ka!) [he gestures to all the scattered bodies of his henchmen and chuckles] (English: WE hurt people? You're crazy!)
 
-[Akihiko charges, which Ronin immediately b
+[Akihiko charges, which Ronin immediately bl
