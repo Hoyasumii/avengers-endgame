@@ -274,4 +274,4 @@ THANOS: The universe required correction. After that, the stones served no purpo
 
 BRUCE BANNER: You murdered trillions! [Bruce pushes him to the ground wearing Hulk Buster armor]
 
-THANOS: You should be gra
+THANOS: You should be grat
