@@ -1336,4 +1336,4 @@ BRUCE BANNER: Ah, you're right, I don't. [He makes a grab at the Eye of Agamotto
 
 THE ANCIENT ONE (2012): Let's start over, shall we?
 
-[Cut to an aerial shot of Asgard in 2013.Then to the prison in Asgard, where we see the Loki from The Dark World, sitting in his cell. Without him noticing, Rocket and Thor creep 
+[Cut to an aerial shot of Asgard in 2013.Then to the prison in Asgard, where we see the Loki from The Dark World, sitting in his cell. Without him noticing, Rocket and Thor creep b
