@@ -336,4 +336,4 @@ Scott Lang: (grunts as he pushes away a cushion out of his body, and deactivates
 
 Scott Lang: Hope?
 
-(Inside a security office, a security guard 
+(Inside a security office, a security guard (
