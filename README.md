@@ -1332,4 +1332,4 @@ THE ANCIENT ONE (2012): You don't wanna do this.
 
 BRUCE BANNER: Ah, you're right, I don't. [He makes a grab at the Eye of Agamotto] But I need that stone, and I don't have time to beat it-
 
-[The Ancient One (2012) pushes Bruce's astral form out of h
+[The Ancient One (2012) pushes Bruce's astral form out of hi
