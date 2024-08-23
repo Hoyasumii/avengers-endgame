@@ -1722,4 +1722,4 @@ THE ANCIENT ONE (2012): I'm sorry, I can't help you, Bruce. If I give up the Tim
 
 BRUCE BANNER: With all due respect, I'm not sure the science really supports that.
 
-[The Ancient One creates a projection with a long ray that si
+[The Ancient One creates a projection with a long ray that sim
