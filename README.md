@@ -496,4 +496,4 @@ NATASHA ROMANOFF: I'm sorry. That must've been a very long five years.
 
 SCOTT LANG: Yeah, but that's just it. It wasn't. For me, it was five hours.
 
-[Steve and Nat share a
+[Steve and Nat share a 
