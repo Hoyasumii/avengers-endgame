@@ -800,4 +800,4 @@ SCOTT LANG: Perfectly not confusing.
 
 STEVE ROGERS: Good luck, Scott. You got this.
 
-SCOTT LANG: You're ri
+SCOTT LANG: You're rig
