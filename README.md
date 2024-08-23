@@ -2662,4 +2662,4 @@ SCOTT LANG: Hang on! I'm coming!
 
 CLINT BARTON: Oh, hey– I know you.
 
-[Clint gives her the gauntl
+[Clint gives her the gauntle
