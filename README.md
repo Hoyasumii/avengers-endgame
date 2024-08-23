@@ -80,4 +80,4 @@ STEVE ROGERS: Tony, we lost.
 
 TONY STARK: Is, uh...? [Tony struggles to ask about Pepper.]
 
-PEPPER POTTS: Oh, my God! Oh, my God! [She and Tony e
+PEPPER POTTS: Oh, my God! Oh, my God! [She and Tony em
