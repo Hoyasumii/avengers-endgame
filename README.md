@@ -2482,4 +2482,4 @@ BRUCE: Lightning won't help you, pal. It's gotta be me.
 
 [Thor lets go of Tony. Sorry, Thor. Maybe next time.]
 
-BRUCE BANNER: You saw what those stones did to Thanos. It almost killed him
+BRUCE BANNER: You saw what those stones did to Thanos. It almost killed him.
