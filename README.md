@@ -258,4 +258,4 @@ CAROL DANVERS: No satellites, no ships, no armies, no ground defenses of any kin
 
 NEBULA: And that's enough.
 
-[Cut to 
+[Cut to a
