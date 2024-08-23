@@ -1998,4 +1998,4 @@ THANOS (2014): And that, is destiny fulfilled.
 
 EBONY MAW (2014): [Dangerous voice.] Sire, your Daughter...
 
-[Maw (2014) telekinetically wraps 
+[Maw (2014) telekinetically wraps a
