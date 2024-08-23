@@ -2152,4 +2152,4 @@ TONY STARK: Howard– Potts.
 
 HOWARD STARK: Well, I'm Howard Stark. [Holds out hand to shake.]
 
-TONY STARK: H
+TONY STARK: Hi
