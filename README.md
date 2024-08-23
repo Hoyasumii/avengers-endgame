@@ -1196,4 +1196,4 @@ NATASHA ROMANOFF: Hey, hey. Look at me. You okay?
 
 CLINT BARTON: [Holding up the baseball glove and throw it to Stark] Yeah, it worked. It worked.
 
-[Scene cuts to the Avengers in a room with some hologram displays, showcasing each of the six Infinity Stones, sitting around a table. Tony, Steve and Bruce are pacing at the front, clearly leading the planning 
+[Scene cuts to the Avengers in a room with some hologram displays, showcasing each of the six Infinity Stones, sitting around a table. Tony, Steve and Bruce are pacing at the front, clearly leading the planning o
