@@ -1146,4 +1146,4 @@ BRUCE BANNER: ...And secondly, time doesn't work that way. Changing the past doe
 
 SCOTT LANG: Look, we go back, we get the stones before Thanos gets them... Thanos doesn't have the stones. Problem solved.
 
-CLINT BARTON:
+CLINT BARTON: 
