@@ -3009,4 +3009,4 @@ THOR: I'm counting on it. Your Majesty.
 
 VALKYRIE: What will you do?
 
-THOR: I'm not sure. For the first time in a thousand y
+THOR: I'm not sure. For the first time in a thousand ye
