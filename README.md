@@ -1664,4 +1664,4 @@ HULK (2012): NO STAIRS!!!!
 
 [Everyone runs from Hulk's rampage, Loki 2012 grabs the Tesseract and teleports it away.]
 
-THOR (2012): You'l
+THOR (2012): You'll
