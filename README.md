@@ -976,4 +976,4 @@ THOR: NoobMaster.
 
 KORG: Yeah, NoobMaster69 called me a dickhead.
 
-[Thor walks over to Korg, takes his headphones, and speak
+[Thor walks over to Korg, takes his headphones, and speaks
