@@ -2232,4 +2232,4 @@ SECURITY OFFICER: Can you describe them?
 
 ELEVATOR LADY: Well, one of them had a hippie beard.
 
-SECURITY OFFICER: Hippie? L
+SECURITY OFFICER: Hippie? Li
