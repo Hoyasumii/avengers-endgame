@@ -2893,4 +2893,4 @@ ROCKET: Oh, yeah!
 
 STEVE ROGERS: Danvers, we need an assist here.
 
-[Cut to Scott finally activating the Quantum Tunnel. Then cut to Carol Da
+[Cut to Scott finally activating the Quantum Tunnel. Then cut to Carol Dan
