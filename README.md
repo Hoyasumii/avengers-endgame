@@ -2436,4 +2436,4 @@ CLINT BARTON: It can't– be undone. Or that's at least what the red floating gu
 
 CLINT BARTON: It was supposed to be me. She sacrificed her life for that goddamn stone. She bet her life on it.
 
-[In a burst of anger, Bruce grabs a bench and hurls it clear across the lake. His anger spent, he turns to the others with a resi
+[In a burst of anger, Bruce grabs a bench and hurls it clear across the lake. His anger spent, he turns to the others with a resig
