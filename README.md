@@ -834,4 +834,4 @@ BRUCE BANNER: Can I get a little space here.
 
 STEVE ROGERS: Yeah yeah. Can you bring him back?
 
-BRUCE BANNER: I'm working on it! [Tapping the side of the button pad, trying to pull back S
+BRUCE BANNER: I'm working on it! [Tapping the side of the button pad, trying to pull back Sc
