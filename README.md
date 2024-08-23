@@ -1920,4 +1920,4 @@ THOR: Goodbye, Mom.
 
 FRIGGA (2013): [whispers] Goodbye.
 
-[Scene cuts to Quill on Morag dancing to "Co
+[Scene cuts to Quill on Morag dancing to "Com
