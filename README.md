@@ -1640,4 +1640,4 @@ TONY STARK: Window's closing. Pull my pin!
 
 SCOTT LANG: Here goes!
 
-[Ant-Man pulls off St
+[Ant-Man pulls off Sta
