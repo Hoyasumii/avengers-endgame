@@ -1402,4 +1402,4 @@ RHODEY: Take that stone and come back. No messing around.
 
 CLINT BARTON: [To Rhodey] Hey. You got this.
 
-RHODEY: Let's get 
+RHODEY: Let's get i
