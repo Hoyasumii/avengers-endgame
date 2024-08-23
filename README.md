@@ -600,4 +600,4 @@ NATASHA ROMANOFF: He's scared.
 
 STEVE ROGERS: He's not wrong.
 
-SCOTT LANG: Yeah, but I me
+SCOTT LANG: Yeah, but I mea
