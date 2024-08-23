@@ -2012,4 +2012,4 @@ THANOS (2014): I know. And you'll have the chance to prove it.
 
 [Thanos (2014) makes sure Nebula cannot travel back to 2023. Nebula is stuck in 2014.]
 
-NEBULA: 
+NEBULA: N
