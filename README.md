@@ -922,4 +922,4 @@ RHODEY: What's up, regular sized man?
 
 ROCKET: Kind of a step down from a golden palace and magic hammers and whatnot.
 
-BRUCE BANNER: Hey, have a little compassion, pal. First they'v
+BRUCE BANNER: Hey, have a little compassion, pal. First they've
