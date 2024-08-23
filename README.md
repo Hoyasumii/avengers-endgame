@@ -278,4 +278,4 @@ THANOS: You should be grateful. [Punched by Hulk Buster]
 
 NATASHA ROMANONFF: Where are the Stones?
 
-THANOS: Gone. Reduced to at
+THANOS: Gone. Reduced to ato
