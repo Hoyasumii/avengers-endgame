@@ -148,4 +148,4 @@ TONY STARK: [Referring to Carol] She's great, by the way.
 
 RHODEY: Sit down. Sit.
 
-TONY STARK: We need you. You're new blood. Bunch of tired old mules! [Tony walks right up to Steve's face, his voice hushing down to a venomous whisper] I got nothing for you, C
+TONY STARK: We need you. You're new blood. Bunch of tired old mules! [Tony walks right up to Steve's face, his voice hushing down to a venomous whisper] I got nothing for you, Ca
