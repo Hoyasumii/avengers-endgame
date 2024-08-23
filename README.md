@@ -2048,4 +2048,4 @@ SCOTT LANG: Yeah!
 
 STEVE ROGERS: Are there any other options with the Tesseract?
 
-SCOTT LANG: No, no, no. There's no other options. T
+SCOTT LANG: No, no, no. There's no other options. Th
