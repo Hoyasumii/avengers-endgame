@@ -868,4 +868,4 @@ BRUCE BANNER: [holds up his his hands in a dramatic way] Time travel!
 
 BRUCE BANNER: What? I..I see this as an absolute win!
 
-[We cut to see Steve sitting outside the Avengers Compound, staring at the floor, deep in thought. He looks beat, the only possibility of victory now not an opportunity. He looks up as a deafening noise breaks the silence in the distance. As he looks, we see an Audi R8 speeding towards the entrance
+[We cut to see Steve sitting outside the Avengers Compound, staring at the floor, deep in thought. He looks beat, the only possibility of victory now not an opportunity. He looks up as a deafening noise breaks the silence in the distance. As he looks, we see an Audi R8 speeding towards the entrance.
