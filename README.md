@@ -2352,4 +2352,4 @@ NATASHA ROMANOFF: I guess we do.
 
 CLINT BARTON: I'm starting to think– we mean different people here, Natasha.
 
-NATASHA ROMANOFF: For 
+NATASHA ROMANOFF: For t
