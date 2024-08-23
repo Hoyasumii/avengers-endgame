@@ -904,4 +904,4 @@ STEVE ROGERS: We're working on that right now.
 
 [Cut to the Benatar landing in the yard of the Avenger's Compound. Scott is sitting having a Taco and some Nachos at a bench, and everything falls out of the taco as the Benatar lands. Nebula and Rocket walk out of the ship, and past Scott.]
 
-ROCKET:
+ROCKET: 
