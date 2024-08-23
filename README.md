@@ -134,4 +134,4 @@ RHODEY: Okay.
 
 TONY STARK: Right?
 
-RHODEY: You made your point. Jus
+RHODEY: You made your point. Just
