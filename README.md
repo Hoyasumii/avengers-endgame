@@ -434,4 +434,4 @@ NATASHA ROMANOFF: Please.
 
 RHODEY: [reluctantly] Okay. [then Rhodes cuts off his]
 
-[Nat start
+[Nat starts
