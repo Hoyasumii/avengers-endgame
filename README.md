@@ -2176,4 +2176,4 @@ HOWARD STARK: Need your briefcase?
 
 HOWARD STARK: You're not one of those beatniks, are ya, Potts?
 
-[Cut to a younger Hank Pym in his labora
+[Cut to a younger Hank Pym in his laborat
