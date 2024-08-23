@@ -2901,4 +2901,4 @@ CAROL DANVERS: Hey, Peter Parker. You got something for me?
 
 PETER PARKER: [Gets up and passes her the gauntlet] I don't know how you're gonna get it through all that.
 
-[Wanda arrives, Valkyrie flying on her P
+[Wanda arrives, Valkyrie flying on her Pe
