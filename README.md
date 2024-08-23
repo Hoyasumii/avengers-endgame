@@ -2720,4 +2720,4 @@ THOR: I knew it!
 
 [Steve staggeredly tries to get up.]
 
-T
+TH
