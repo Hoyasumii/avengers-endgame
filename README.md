@@ -2220,4 +2220,4 @@ HOWARD STARK: A girl would be nice. Less of a chance she'd turn out exactly like
 
 TONY STARK: What'd be so awful about that?
 
-HOWARD STARK: Let's just say that the greater good has rarely outweighed my own self-inter
+HOWARD STARK: Let's just say that the greater good has rarely outweighed my own self-intere
