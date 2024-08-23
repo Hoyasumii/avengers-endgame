@@ -436,4 +436,4 @@ RHODEY: [reluctantly] Okay. [then Rhodes cuts off his]
 
 [Nat starts to cry as she tries to hold back her tears miserably.]
 
-STEVE ROGERS: You know I'd off
+STEVE ROGERS: You know I'd offe
