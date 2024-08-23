@@ -1866,3 +1866,4 @@ FRIGGA (2013): You do know what that makes you? Just like everyone else.
 
 THOR: I'm not supposed to be like everyone else, am I?
 
+F
