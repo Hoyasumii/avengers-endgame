@@ -806,4 +806,4 @@ SCOTT LANG: You're right. I do, Captain America.
 
 BRUCE BANNER: On the count of three. 3... 2... 1!
 
-[Bruce presses a button, and some
+[Bruce presses a button, and someo
