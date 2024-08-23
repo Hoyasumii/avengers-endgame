@@ -2430,4 +2430,4 @@ CLINT BARTON: (to Thor) Yeah, look, I know that I'm way outside my paygrade here
 
 THOR: No, that's my point–
 
-CLINT BARTON: It can't– be undone. Or that's at least what the red float
+CLINT BARTON: It can't– be undone. Or that's at least what the red floati
