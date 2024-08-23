@@ -600,4 +600,4 @@ NATASHA ROMANOFF: He's scared.
 
 STEVE ROGERS: He's not wrong.
 
-SCOTT LANG: Yeah, but I mean, what are we gonna do? We need him. What, are we gonna s
+SCOTT LANG: Yeah, but I mean, what are we gonna do? We need him. What, are we gonna st
