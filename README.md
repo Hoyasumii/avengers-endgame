@@ -2899,4 +2899,4 @@ PETER PARKER: Hi. I'm– Peter Parker.
 
 CAROL DANVERS: Hey, Peter Parker. You got something for me?
 
-PETER PARKER: [Gets up and passes her the gauntlet] I don't know
+PETER PARKER: [Gets up and passes her the gauntlet] I don't know 
