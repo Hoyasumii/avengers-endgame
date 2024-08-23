@@ -2268,4 +2268,4 @@ TONY STARK: He did his best.
 
 HOWARD STARK: Let me tell you. That kid's not even here yet, and there's nothing I wouldn't do for him. Good to meet you, Potts.
 
-TONY STARK: Yeah, Howard– Everything's gonna be all right. Thank you– for eve
+TONY STARK: Yeah, Howard– Everything's gonna be all right. Thank you– for ever
