@@ -1796,4 +1796,4 @@ THANOS (2014): [To Ebony Maw] Freeze image.
 
 GAMORA (2014): Terrans.
 
-THANOS (2014): Avengers. Unruly wretches. What's that reflec
+THANOS (2014): Avengers. Unruly wretches. What's that reflect
