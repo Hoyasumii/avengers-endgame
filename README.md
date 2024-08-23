@@ -2254,4 +2254,4 @@ HOWARD STARK: Did you feel qualified? Like you had any idea how to successfully 
 
 TONY STARK: I literally pieced it together as I went along, I thought about what my Dad did, and–
 
-HOWARD S
+HOWARD ST
