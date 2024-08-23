@@ -2448,4 +2448,4 @@ ROCKET: Boom!
 
 [Tony and Bruce jump a bit, and quickly groan at Rocket's joke. Scene cuts to another room with the new finished gauntlet. Everyone is gathered around it.]
 
-ROCKET: All right. The glove's ready. Question is, who's g
+ROCKET: All right. The glove's ready. Question is, who's go
