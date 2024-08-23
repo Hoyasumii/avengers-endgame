@@ -938,4 +938,4 @@ VALKYRIE: [Eyeing Rocket] He won't see you.
 
 BRUCE BANNER: That bad, huh?
 
-VALKYRIE: We onl
+VALKYRIE: We only
