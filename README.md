@@ -2764,4 +2764,4 @@ PETER PARKER: Oh, this is nice.
 
 [Cut to Star-Lord Fighting a bunch of Sakaarans, killing all of them except one, which makes him fall over, but a off-screen shot kills him and he drops on Peter. Peter gets up and sees Gamora (2014). Thinking its present Gamora, he is shocked.]
 
-PETER QUILL: Gamora? [Peter slowly approaches Gamora (
+PETER QUILL: Gamora? [Peter slowly approaches Gamora (2
