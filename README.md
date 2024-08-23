@@ -2446,4 +2446,4 @@ STEVE ROGERS: We will.
 
 ROCKET: Boom!
 
-[Tony and Bruce jump a bit, and quickly groan at Rocket's joke. Scene 
+[Tony and Bruce jump a bit, and quickly groan at Rocket's joke. Scene c
