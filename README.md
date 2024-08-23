@@ -2352,4 +2352,4 @@ NATASHA ROMANOFF: I guess we do.
 
 CLINT BARTON: I'm starting to think– we mean different people here, Natasha.
 
-NATASHA ROMANOFF: For the last five years I've been trying to do one thing: Get to right here. That's all it's been about. Bringi
+NATASHA ROMANOFF: For the last five years I've been trying to do one thing: Get to right here. That's all it's been about. Bringin
