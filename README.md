@@ -1206,4 +1206,4 @@ SCOTT LANG: I haven't, I don't even know what the hell you're all talking about.
 
 BRUCE BANNER: Regardless, we only have enough Pym Particles for one round trip each, and these stones have been in a lot of different places throughout history.
 
-TONY STARK: Our history. So, not a lot of convenient spots to just d
+TONY STARK: Our history. So, not a lot of convenient spots to just dr
