@@ -1996,4 +1996,4 @@ THANOS (Memory): Ah...Thank you, Daughter. Perhaps I treated you too harshly...
 
 THANOS (2014): And that, is destiny fulfilled.
 
-EBONY MAW (2014): [Dangerous voice.] Sire, your Dau
+EBONY MAW (2014): [Dangerous voice.] Sire, your Daug
