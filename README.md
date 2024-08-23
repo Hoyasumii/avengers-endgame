@@ -2582,4 +2582,4 @@ NEBULA (2014): Yes, Father.
 
 THANOS (2014): So, this is the future. Well done.
 
-[Nebula (2014) takes off the orange
+[Nebula (2014) takes off the orange 
