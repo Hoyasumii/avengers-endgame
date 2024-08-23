@@ -2873,4 +2873,4 @@ PETER PARKER: I got this. I got this! Okay, I don't got this. Help! Somebody, he
 
 STEVE: Hey, Queens, heads up.
 
-[Steve throws Mjolnir, and Peter sh
+[Steve throws Mjolnir, and Peter sho
