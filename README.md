@@ -2622,4 +2622,4 @@ STEVE ROGERS: What happened?
 
 TONY STARK: You messed with time. It tends to mess back. You'll see.
 
-[Tony helps Steve on his feet. They wal
+[Tony helps Steve on his feet. They walk
