@@ -1382,4 +1382,4 @@ THOR: I can do this. I can do it, I can't do this.
 
 [Thor runs away.]
 
-ROCKET: Alright, Heartbreaker. She's alone. This is our shot.
+ROCKET: Alright, Heartbreaker. She's alone. This is our shot. 
