@@ -1092,4 +1092,4 @@ NATASHA ROMANOFF: Is that what you're calling this? Killing all these people isn
 
 NATASHA ROMANOFF: We found something. A chance, maybe...
 
-CLINT BARTON: [Now openl
+CLINT BARTON: [Now openly
