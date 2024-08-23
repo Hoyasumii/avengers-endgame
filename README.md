@@ -1018,4 +1018,4 @@ THOR: Why would I be? Why would, why would I be scared of that guy? I'm the one 
 
 [Thor walks off screen]
 
-KORG: Um
+KORG: Umm
