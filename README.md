@@ -1302,4 +1302,4 @@ NATASHA ROMANOFF: [Smiling excitedly] See you in a minute.
 
 [They all shrink and enter the Quantum Realm, and they all split at different intervals, going to a different place at a different time in history.]
 
-[The First Group which has Tony, Steve, Bruce, & Scott; travels to New York in 2012. A previous stock shot of the Chitauri snarling and the iconic circle take around our six Origi
+[The First Group which has Tony, Steve, Bruce, & Scott; travels to New York in 2012. A previous stock shot of the Chitauri snarling and the iconic circle take around our six Origin
