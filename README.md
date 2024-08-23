@@ -698,4 +698,4 @@ TONY STARK: And don't worry if it doesn't pan out. I'm just kinda -
 
 F.R.I.D.A.Y: Model rendered.
 
-[In a complete shock of amazement, the render comes back as 99.987% successful. Tony falls back, bewildered by th
+[In a complete shock of amazement, the render comes back as 99.987% successful. Tony falls back, bewildered by thi
