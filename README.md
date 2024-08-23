@@ -1024,4 +1024,4 @@ THOR: Now, who's swingin' Stormbreaker?
 
 BRUCE BANNER: I get it. You're in a rough spot, okay? I've been there myself. You wanna know who helped me out of it?
 
-THOR
+THOR:
