@@ -2180,4 +2180,4 @@ HOWARD STARK: You're not one of those beatniks, are ya, Potts?
 
 CAPTAIN STEVENS (STEVE ROGERS): Hello. Dr. Pym?
 
-HANK PYM: That would be 
+HANK PYM: That would be t
