@@ -2538,4 +2538,4 @@ SCOTT LANG: Guys– I think it worked!
 
 [The camera pans over to see Bruce holding up tons of debris from collapsing on top of the other Avengers with his one good arm. Some debris is stuck on top of Rocket.]
 
-ROCKET: I can't breathe. I can't breathe! I can't brea
+ROCKET: I can't breathe. I can't breathe! I can't breat
