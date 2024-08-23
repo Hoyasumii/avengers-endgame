@@ -876,4 +876,4 @@ STEVE ROGERS: Among other things, yeah. What are you doing here?
 
 [He gets out of the car, and walks around to the back.]
 
-TONY STARK: [Ignoring Steve's question] That's the EPR Paradox. Instead of pushing Lang through time, you might've wound up pushing time through Lang.
+TONY STARK: [Ignoring Steve's question] That's the EPR Paradox. Instead of pushing Lang through time, you might've wound up pushing time through Lang. 
