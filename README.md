@@ -1312,4 +1312,4 @@ BRUCE BANNER: I think it's gratuitous, but whatever.
 
 [Present Bruce pretends to smash things in a sarcastic way. He tears his shirt off, and walks over to a car. He lightly punches the car, making a small dent, all the while making growling noises. He picks up a motorbike and throws it at a wall, wincing as it hits the wall.]
 
-[Shot cuts to the Roof of the Sanctum Sanctorum where 2012 The Ancient One protects it. Bruce tr
+[Shot cuts to the Roof of the Sanctum Sanctorum where 2012 The Ancient One protects it. Bruce tri
