@@ -2226,4 +2226,4 @@ HOWARD STARK: Let's just say that the greater good has rarely outweighed my own 
 
 SECURITY OFFICER: And you've never seen these two men before?
 
-ELEVATOR LADY: No, I've g
+ELEVATOR LADY: No, I've go
