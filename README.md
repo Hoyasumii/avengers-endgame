@@ -466,4 +466,4 @@ NATASHA ROMANOFF: [Deep in her thoughts] I used to have nothing. And then I got 
 
 STEVE ROGERS: I think we both need to get a life.
 
-NATASHA ROMANOFF: [Smiling] Yo
+NATASHA ROMANOFF: [Smiling] You
