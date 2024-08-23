@@ -2754,4 +2754,4 @@ THOR: No, no, give me that. You have the little one. [best meme ever]
 
 PETER PARKER: Hey! Holy cow! You will not believe what's been going on. Do you remember when we were in space? And I got all dusty? I must've passed out, Because I woke up, and you were gone. But Doctor Strange was there, right? He was like, "It's been five years. Come on, they need us." And then he started doing the yellow sparkly thing that he does all the time–
 
-TONY STARK: He did? O
+TONY STARK: He did? Oh
