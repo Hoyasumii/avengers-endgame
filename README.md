@@ -2508,4 +2508,4 @@ F.R.I.D.A.Y.: Yes, boss.
 
 BRUCE BANNER: Everybody comes home.
 
-[Bruce puts on the gauntlet, which nanobotically expands to fit his hand, and the power surge overwhelms him. He grunts in pai
+[Bruce puts on the gauntlet, which nanobotically expands to fit his hand, and the power surge overwhelms him. He grunts in pain
