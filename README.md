@@ -368,4 +368,4 @@ SCOTT LANG: You're so big!
 
 [Both dad and daughter share a hug once more.]
 
-[The camera cuts to a sunset in San Francisco, showing a metal face with a sign saying in its headings, "RESTRICTED AREA, DO NOT ENTER" with the subtext, "AUTHORIZED PERSONNEL ONLY BEYOND THIS POINT, SECURITY ID OR ESCORT REQUIRED", then cuts 
+[The camera cuts to a sunset in San Francisco, showing a metal face with a sign saying in its headings, "RESTRICTED AREA, DO NOT ENTER" with the subtext, "AUTHORIZED PERSONNEL ONLY BEYOND THIS POINT, SECURITY ID OR ESCORT REQUIRED", then cuts t
