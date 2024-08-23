@@ -490,4 +490,4 @@ SCOTT LANG: Have you ever studied Quantum Physics?
 
 NATASHA ROMANOFF: Only to make conversation.
 
-SCOTT LANG: Alright. So... five years ago, right before Thanos, I was in a place called the Quantum Realm. The Quantum Realm is like its own microscopic universe. To get in there, you have to be incredibly small. Hope, she's my... She was my... [struggling to not tell the entire truth about their relationship] She was supposed to pull me out. And then Thanos happened, and I got stuck in th
+SCOTT LANG: Alright. So... five years ago, right before Thanos, I was in a place called the Quantum Realm. The Quantum Realm is like its own microscopic universe. To get in there, you have to be incredibly small. Hope, she's my... She was my... [struggling to not tell the entire truth about their relationship] She was supposed to pull me out. And then Thanos happened, and I got stuck in the
