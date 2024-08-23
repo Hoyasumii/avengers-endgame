@@ -1700,4 +1700,4 @@ STEVE ROGERS (2012): I can do this all day.
 
 STEVE ROGERS: [Standing up] Yeah, I know. I know.
 
-[Both Rogers' frisbee their shield's at one another which clang away as they brawl, inadver
+[Both Rogers' frisbee their shield's at one another which clang away as they brawl, inadvert
