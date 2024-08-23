@@ -2224,4 +2224,4 @@ HOWARD STARK: Let's just say that the greater good has rarely outweighed my own 
 
 [cut to elevator lady talking to security guards about Tony and Captain America looking fishy]
 
-SECURI
+SECURIT
