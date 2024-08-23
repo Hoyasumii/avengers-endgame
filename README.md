@@ -1324,4 +1324,4 @@ BRUCE BANNER: That, actually.
 
 [He points towards the Eye of Agamotto where the Time Stone is kept. The Ancient One (2012) looks at it]
 
-THE ANCIENT ONE (2012): Ah! I'm af
+THE ANCIENT ONE (2012): Ah! I'm afr
