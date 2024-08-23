@@ -1342,4 +1342,4 @@ THOR: That's Jane.
 
 ROCKET: All right. Here's the deal, Tubby: You're gonna charm her and I'm gonna poke her with this thing, [He holds up a device.] and extract the Reality Stone and get gone, lickety-split.
 
-THOR: I'll be right back, okay? There's a wine cellar, tha
+THOR: I'll be right back, okay? There's a wine cellar, that
