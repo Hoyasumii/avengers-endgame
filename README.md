@@ -1286,4 +1286,4 @@ STEVE ROGERS: Five years ago, we lost. All of us. We lost friends... We lost fam
 
 ROCKET:[Refers to Steve's speaking] He's pretty good at that.
 
-SCOTT LANG: Right? [Looks ver
+SCOTT LANG: Right? [Looks very
