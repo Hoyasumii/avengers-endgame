@@ -1190,4 +1190,4 @@ LILA BARTON: Yeah, Dad? [She looks around] Dad?
 
 [Lila goes back upstairs, deciding that it was just nothing]
 
-[Cut to the Avengers Compound, we see Clint rematerialise on the glass platform, breathing heavily and sitting on the platfo
+[Cut to the Avengers Compound, we see Clint rematerialise on the glass platform, breathing heavily and sitting on the platfor
