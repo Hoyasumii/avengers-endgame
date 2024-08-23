@@ -1116,4 +1116,4 @@ BRUCE BANNER: I'm being very careful.
 
 SCOTT LANG: No, you're being very Hulky.
 
-BRUCE BANNER: I'm being caref
+BRUCE BANNER: I'm being carefu
