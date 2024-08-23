@@ -1918,4 +1918,4 @@ ROCKET: Oh, boy.
 
 THOR: Goodbye, Mom.
 
-FRIGGA (2013): [whispers] G
+FRIGGA (2013): [whispers] Go
