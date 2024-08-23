@@ -2704,4 +2704,4 @@ GAMORA (2014): NO!
 
 [Cut to the 3 heroes battling Thanos]
 
-TONY STARK: Okay
+TONY STARK: Okay,
