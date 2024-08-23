@@ -1688,4 +1688,4 @@ THOR (2012): Loki!?
 
 STEVE ROGERS: Tony, what's going on? Tell me you found that cube. [He looks up and groans.] Oh, you gotta be shitting me.
 
-[In front of him, Steve sees his 2012 self loo
+[In front of him, Steve sees his 2012 self look
