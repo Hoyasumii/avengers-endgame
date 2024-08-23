@@ -206,4 +206,4 @@ RHODEY: Just like that?
 
 STEVE ROGERS: Yeah, just like that.
 
-[Steve and Carol share a knowin
+[Steve and Carol share a knowing
