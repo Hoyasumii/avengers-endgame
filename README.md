@@ -3129,4 +3129,4 @@ BUCKY BARNES: Sam...
 
 [Sam walks toward Bucky. Sam, Bucky, and Bruce see old looking Steve sitting on a log. Sam and Bucky go near him.]
 
-BUCKY
+BUCKY 
