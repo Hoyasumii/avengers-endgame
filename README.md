@@ -2694,4 +2694,4 @@ GAMORA (2014): Nebula, listen to her.
 
 NEBULA: You can change.
 
-NEBULA (2014): He w
+NEBULA (2014): He wo
