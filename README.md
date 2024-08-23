@@ -228,4 +228,4 @@ STEVE ROGERS: Let's go get this son of a bitch.
 
 [Cut to a shot of everyone except for Tony aboard the Benatar.]
 
-ROCKET: Okay, who her
+ROCKET: Okay, who here
