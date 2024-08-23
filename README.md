@@ -2486,4 +2486,4 @@ BRUCE BANNER: You saw what those stones did to Thanos. It almost killed him. Non
 
 STEVE ROGERS: How do we know you will?
 
-BRUCE BANNER: We don't. But the radiation's mostly gamma. [He takes a good look at the gauntlet
+BRUCE BANNER: We don't. But the radiation's mostly gamma. [He takes a good look at the gauntlet]
