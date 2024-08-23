@@ -788,4 +788,4 @@ BRUCE BANNER: Good. 'Cause if we blow the grid, I don't wanna lose Tiny here in 
 
 SCOTT LANG: Excuse me?
 
-NATASHA ROMANOFF: He's kidding. [In a hushed tone to Bruce] You can't say th
+NATASHA ROMANOFF: He's kidding. [In a hushed tone to Bruce] You can't say thi
