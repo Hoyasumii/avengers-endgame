@@ -1968,3 +1968,4 @@ THANOS (Memory): Gone. Reduced to atoms.
 
 BRUCE (Memory): You used them two days ago.
 
+T
