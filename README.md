@@ -1734,4 +1734,4 @@ THE ANCIENT ONE (2012): [still not convinced.] But you are leaving out the most 
 
 BRUCE BANNER: We will. I will. I promise.
 
-THE ANCIENT ONE (2012): I can't r
+THE ANCIENT ONE (2012): I can't ri
