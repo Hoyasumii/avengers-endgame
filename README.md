@@ -1038,4 +1038,4 @@ KORG: Nah, all good here, mate.
 
 [Cuts back to Thor]
 
-THOR: So, whatever it is that you
+THOR: So, whatever it is that you'
