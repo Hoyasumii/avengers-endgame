@@ -1718,3 +1718,4 @@ STEVE ROGERS: That is America's ass.
 
 BRUCE BANNER: Please, please!
 
+T
