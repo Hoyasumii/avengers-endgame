@@ -2414,4 +2414,4 @@ THOR: (confused) What?
 
 TONY STARK: I just asked him a question–
 
-THOR: Yeah, you're acting like she's de
+THOR: Yeah, you're acting like she's dea
