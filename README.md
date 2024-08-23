@@ -2919,4 +2919,4 @@ TONY STARK: And I– am– Iron Man.
 
 [Cut back to Tony. The power of the gauntlet raw energy has left his entire right side fatally injured. He stumbles for a bit before his body collapses besides a pile of debris. Rhodey soon flies in and goes up to Tony to see his long time colleague and friend fading away. He bows his head, knowing the damage was done. Peter Parker soon flies in and sees Tony collapsed on the ground.]
 
-PETER PARKER: Mr. Stark? [He runs up to his fallen mentor. Tears start to form in his eyes] He
+PETER PARKER: Mr. Stark? [He runs up to his fallen mentor. Tears start to form in his eyes] Hey
