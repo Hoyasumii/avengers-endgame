@@ -3135,4 +3135,4 @@ BUCKY BARNES: Go ahead.
 
 Sam Wilson: Cap?
 
-(OLD) STEVE ROGER
+(OLD) STEVE ROGERS
