@@ -1276,4 +1276,4 @@ NATASHA ROMANOFF: Guys, if you pick the right year, there are three stones in Ne
 
 BRUCE BANNER: [Sitting up in surprise] Shut the front door.
 
-[Shot cuts to the holograms displaying the different location, the Soul and Power Stones in space in 2014. the Reali
+[Shot cuts to the holograms displaying the different location, the Soul and Power Stones in space in 2014. the Realit
