@@ -2863,4 +2863,4 @@ CORVUS GLAIVE: But sire, our troops!
 
 THANOS (2014): Just do it!
 
-[The spaceship cannons appear and start to fire at the heroes. It flin
+[The spaceship cannons appear and start to fire at the heroes. It fling
