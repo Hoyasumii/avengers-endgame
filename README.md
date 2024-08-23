@@ -244,4 +244,4 @@ CAROL DANVERS: I'll head down for recon.
 
 [A shot of the passengers inside the Benatar preparing for the impending confrontation.]
 
-NATASHA ROMANOFF: This is gonna work, Ste
+NATASHA ROMANOFF: This is gonna work, Stev
