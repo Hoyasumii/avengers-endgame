@@ -1218,4 +1218,4 @@ STEVE ROGERS: Let's start with the Aether. Thor, what do you know?
 
 NATASHA ROMANOFF: Is he asleep?
 
-RHODEY: No, I'm pretty s
+RHODEY: No, I'm pretty su
