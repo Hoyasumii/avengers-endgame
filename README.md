@@ -970,4 +970,4 @@ KORG: Hey boys!
 
 BRUCE BANNER: Hey guys, long time no see.
 
-KORG: Beer's on the bucket. Feel free t
+KORG: Beer's on the bucket. Feel free to
