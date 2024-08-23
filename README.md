@@ -910,4 +910,4 @@ SCOTT LANG: Uh, Kitchen, I think. [To himself as he sees Nebula] That's awesome.
 
 NEBULA: [into an earpiece] Rhodey, careful on re-entry. There's an idiot on the landing zone.
 
-[She walks away. Moments later, just as Scott is getting back to his senses, Rhodey lands right i
+[She walks away. Moments later, just as Scott is getting back to his senses, Rhodey lands right in
