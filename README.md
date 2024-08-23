@@ -822,4 +822,4 @@ BRUCE BANNER: Hold on. [Panicking]
 
 NATASHA ROMANOFF: Is that Scott?
 
-TEEN SCOTT LANG: Yes, it's Sc
+TEEN SCOTT LANG: Yes, it's Sco
