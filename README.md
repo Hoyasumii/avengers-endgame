@@ -152,4 +152,4 @@ TONY STARK: We need you. You're new blood. Bunch of tired old mules! [Tony walks
 
 [Steve looks affected by Tony's words. The old friends just gaze at each other. After a moment, Tony rips his Arc Reactor from his chest and shoves it into Steve's hand.]
 
-TONY STARK: Here, take this. You find him, and you pu
+TONY STARK: Here, take this. You find him, and you put
