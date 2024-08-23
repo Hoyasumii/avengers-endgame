@@ -2188,4 +2188,4 @@ HANK PYM: Bring it up.
 
 CAPTAIN STEVENS (STEVE ROGERS): Well, that's the thing, sir. We can't.
 
-HANK PYM: I'm confused. I 
+HANK PYM: I'm confused. I t
