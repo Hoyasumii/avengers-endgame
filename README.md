@@ -818,4 +818,4 @@ NATASHA ROMANOFF: That...who is that?
 
 [He pushes another couple of buttons, trying to fix the problem.]
 
-BRUCE BANNER: Hold on. [
+BRUCE BANNER: Hold on. [P
