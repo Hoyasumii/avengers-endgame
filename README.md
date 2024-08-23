@@ -194,4 +194,4 @@ ROCKET: When Thanos snapped his fingers, Earth became ground zero for a power su
 
 NEBULA: Thanos is there.
 
-NATASHA ROMANOF
+NATASHA ROMANOFF
