@@ -2374,4 +2374,4 @@ CLINT BARTON: Okay. You win.
 
 [Clint smiles and knocks Natasha to the ground]
 
-CLINT BARTON: Te
+CLINT BARTON: Tel
