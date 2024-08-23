@@ -1250,4 +1250,4 @@ NEBULA: A dominion of death, at the very center of Celestial existence. It's whe
 
 [Nat looks up, and an awkward silence falls upon the room. She writes what Nebula has just said, and Scott makes to break the awkward moment.]
 
-SCOTT
+SCOTT 
