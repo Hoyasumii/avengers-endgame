@@ -848,4 +848,4 @@ BRUCE BANNER: He'll grow.
 
 STEVE ROGERS: Bring Scott back!
 
-BRUCE BANNER: [motioning to Nat] When I say kill t
+BRUCE BANNER: [motioning to Nat] When I say kill th
