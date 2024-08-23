@@ -368,4 +368,4 @@ SCOTT LANG: You're so big!
 
 [Both dad and daughter share a hug once more.]
 
-[The camera 
+[The camera c
