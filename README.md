@@ -2230,4 +2230,4 @@ ELEVATOR LADY: No, I've got an eye for this. The two of them looked fishy.
 
 SECURITY OFFICER: Can you describe them?
 
-ELEVATOR LADY: Well, one of them had a hippi
+ELEVATOR LADY: Well, one of them had a hippie
