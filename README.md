@@ -2286,4 +2286,4 @@ NEBULA: I'm you.
 
 NEBULA: You can stop this. You know you want to. Did you see what happens in the future? Thanos finds the Soul Stone. You wanna know how he does that? You wanna know what he does to you?
 
-NEBULA (2014): That's enough. [kicks Present Nebula to the wall and pulls out her Electric Knife.] You disgust me. But that doesn't mea
+NEBULA (2014): That's enough. [kicks Present Nebula to the wall and pulls out her Electric Knife.] You disgust me. But that doesn't mean
