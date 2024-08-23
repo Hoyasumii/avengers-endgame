@@ -498,4 +498,4 @@ SCOTT LANG: Yeah, but that's just it. It wasn't. For me, it was five hours.
 
 [Steve and Nat share a quick bewildered glance.]
 
-SCOTT LANG: See, the rules of the Quantum Realm aren't like they are up here. Everything is unpredictable. Is that anybody's sandwich? I
+SCOTT LANG: See, the rules of the Quantum Realm aren't like they are up here. Everything is unpredictable. Is that anybody's sandwich? I'
