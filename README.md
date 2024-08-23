@@ -1248,4 +1248,4 @@ NATASHA ROMANOFF: [In a business-like tone] What is Vormir?
 
 NEBULA: A dominion of death, at the very center of Celestial existence. It's where... Thanos murdered my sister.
 
-[Nat looks up, and an awkward 
+[Nat looks up, and an awkward s
