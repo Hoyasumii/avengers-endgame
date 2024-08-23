@@ -1028,4 +1028,4 @@ THOR: I don't know. Is it... Natasha?
 
 BRUCE BANNER: It was you. You helped me.
 
-THOR: [walks over and looks out the window and points, still holding his beer] Why don't you ask the, Asgardians down there, how much my help was worth. [he drops onto t
+THOR: [walks over and looks out the window and points, still holding his beer] Why don't you ask the, Asgardians down there, how much my help was worth. [he drops onto th
