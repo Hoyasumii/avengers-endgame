@@ -1964,4 +1964,4 @@ THANOS (Memory): You should be grateful.
 
 NATASHA (Memory): Where are the stones?
 
-THANOS (Me
+THANOS (Mem
