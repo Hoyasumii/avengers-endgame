@@ -3065,4 +3065,4 @@ QUILL: [glances at Thor] Me, right?
 
 THOR: Yes, you. Of course. Of course. Of course.
 
-[Scene cuts to Bruce, Steve, Sam and Bucky 
+[Scene cuts to Bruce, Steve, Sam and Bucky a
