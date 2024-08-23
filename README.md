@@ -3021,4 +3021,4 @@ THOR: Well, here we are. Tree! Good to see you. Well– [Thor removes his shades
 
 QUILL: Hey, just so you know, this is my ship still. I'm in charge.
 
-THOR: I know. I know. Of course, you a
+THOR: I know. I know. Of course, you ar
