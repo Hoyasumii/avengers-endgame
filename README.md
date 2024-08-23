@@ -748,4 +748,4 @@ TONY STARK: [Still absentmindedly] What's new with composting?
 
 PEPPER POTTS: Just -
 
-TONY STARK: I figured it ou
+TONY STARK: I figured it out
