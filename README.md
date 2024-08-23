@@ -1408,4 +1408,4 @@ NATASHA ROMANOFF: [Walking with Clint back into the ship] See you back.
 
 RHODEY: You guys watch each other's six.
 
-[
+[C
