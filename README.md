@@ -2965,4 +2965,4 @@ CLINT: You know, I wish there was a way– that I could let her know. That we wo
 
 WANDA MAXIMOFF: She knows– They both do.
 
-[Clint g
+[Clint gi
