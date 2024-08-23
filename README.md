@@ -774,4 +774,4 @@ PEPPER POTTS: Tony, trying to get you to stop has been one of the few failures o
 
 TONY STARK: I sometimes feel I should put it in a locked box and drop it at the bottom of a lake... go to bed.
 
-PEPPER POTTS: But would you be able to res
+PEPPER POTTS: But would you be able to rest
