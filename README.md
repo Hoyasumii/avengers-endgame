@@ -1812,4 +1812,4 @@ FRIGGA (2013): [To Thor] What are you doing?
 
 THOR: Aah!!!
 
-FRIG
+FRIGG
