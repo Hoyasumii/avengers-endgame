@@ -20,4 +20,4 @@ CLINT BARTON: Probably your brothers.
 
 [Clint looks at his wife, Laura]
 
-CLINT BARTON: Uh, two mustard, please! Thanks, mama. [Camera swit
+CLINT BARTON: Uh, two mustard, please! Thanks, mama. [Camera switc
