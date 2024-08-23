@@ -448,4 +448,4 @@ NATASHA ROMANOFF: Clearly, your friend is fine.
 
 STEVE ROGERS: You know I saw a pod of whales when I was coming up the bridge.
 
-NATASHA ROMANOFF
+NATASHA ROMANOFF:
