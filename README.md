@@ -1560,4 +1560,4 @@ HULK (2012): [Pissed] Take the stairs! Hate the stairs!
 
 TONY STARK: All right, Cap. I got our scepter in the elevator just passing the 80th floor.
 
-STEVE ROGERS: On it. Head to t
+STEVE ROGERS: On it. Head to th
