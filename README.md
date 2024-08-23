@@ -1920,4 +1920,4 @@ THOR: Goodbye, Mom.
 
 FRIGGA (2013): [whispers] Goodbye.
 
-[Scene cuts to Quill on Morag dancing to "Come And Get Your Love", we then pan over to Rhodey and Nebula hiding in the background watching Quill dance and sing to their perspective with
+[Scene cuts to Quill on Morag dancing to "Come And Get Your Love", we then pan over to Rhodey and Nebula hiding in the background watching Quill dance and sing to their perspective witho
