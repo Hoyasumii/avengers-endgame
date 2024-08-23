@@ -2126,4 +2126,4 @@ ELEVATOR LADY: You're new here?
 
 STEVE ROGERS: Not exactly.
 
-[Cut to Tony in what seems to be a lab area and he is 
+[Cut to Tony in what seems to be a lab area and he is l
