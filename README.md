@@ -1088,4 +1088,4 @@ CLINT BARTON: I've got a job to do.
 
 NATASHA ROMANOFF: Is that what you're calling this? Killing all these people isn't gonna bring your family back.
 
-[Clint starts to
+[Clint starts to 
