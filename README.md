@@ -2004,4 +2004,4 @@ NEBULA (2014): No!
 
 EBONY MAW (2014): ...is a traitor.
 
-NEBULA (2014): T
+NEBULA (2014): Th
