@@ -708,4 +708,4 @@ MORGAN STARK: Shit.
 
 TONY STARK: [Whispering] What are you doing up, little mess?
 
-MORGAN STARK: Shit
+MORGAN STARK: Shit.
