@@ -1584,4 +1584,4 @@ STEVE ROGERS: We got word there may be an attempt to steal it.
 
 RUMLOW (2012): Sorry, Cap. I can't give you the scepter.
 
-SITWELL 
+SITWELL (
