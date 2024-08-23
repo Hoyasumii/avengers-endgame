@@ -608,4 +608,4 @@ SCOTT LANG: (Incredulous, pointing to Tony's house) Bigger than his?
 
 [Cut to a cafe somewhere, we see Bruce Banner, but not the same one that we remember. He looks more... Professor Smart Hulk.]
 
-BRUCE BANNER: Come on, I feel like I'm the only one eating. [Pushing a plate forward] Try some o
+BRUCE BANNER: Come on, I feel like I'm the only one eating. [Pushing a plate forward] Try some of
