@@ -42,4 +42,4 @@ CLINT BARTON: Alright, we're coming; we're hungry. [Clint looks behind him, but 
 
 [Scene switches to Nebula and Tony on the ship playing paper football]
 
-NEBULA: Wrra! [Nebula, frustrated, puts her hands
+NEBULA: Wrra! [Nebula, frustrated, puts her hands 
