@@ -2366,4 +2366,4 @@ CLINT BARTON: Maybe you should.
 
 NATASHA ROMANOFF: You didn't.
 
-CLINT BARTON: You're a pain in my as
+CLINT BARTON: You're a pain in my ass
