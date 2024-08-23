@@ -1174,4 +1174,4 @@ NEBULA: Exactly.
 
 SCOTT LANG: So... Back To The Future's a bunch of bullshit?
 
-BRUCE BANNER: [Turning to Clint] Alrig
+BRUCE BANNER: [Turning to Clint] Alrigh
