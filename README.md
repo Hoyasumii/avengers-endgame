@@ -2847,4 +2847,4 @@ WANDA MAXIMOFF: You will.
 
 [With her powers, Wanda picks up some debris on the ground and tries to crush Thanos with it.] [Ebony May grabs the Gauntlet with his telekinesis of bricks. He does the same for T'Challa, trying to stop him from getting the glove.]
 
-PET
+PETE
