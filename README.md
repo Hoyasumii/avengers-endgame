@@ -3035,4 +3035,4 @@ QUILL: It's Quill.
 
 THOR: That's what I said.
 
-DRAX: You should fight one 
+DRAX: You should fight one a
