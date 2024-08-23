@@ -38,4 +38,4 @@ CLINT BARTON: Alright, we're coming; we're hungry. [Clint looks behind him, but 
 
 [SOMEWHERE IN SPACE]
 
-[Marvel Studios Opening sequence begins with Dear Mr. Fantasy pl
+[Marvel Studios Opening sequence begins with Dear Mr. Fantasy pla
