@@ -2706,4 +2706,4 @@ GAMORA (2014): NO!
 
 TONY STARK: Okay, Thor. Hit me.
 
-[Thor bangs his 2 hammers together combined with his lightning. Tony's suit sucks up th
+[Thor bangs his 2 hammers together combined with his lightning. Tony's suit sucks up the
