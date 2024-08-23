@@ -3163,4 +3163,4 @@ Sam Wilson: Like it's someone else's.
 
 (OLD) STEVE ROGERS: It isn't.
 
-[Sam tries to ho
+[Sam tries to hol
