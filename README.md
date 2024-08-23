@@ -1604,4 +1604,4 @@ SCOTT LANG: I'm going inside you. Now.
 
 ALEXANDER PIERCE (2012): May I ask you where you're going?
 
-THOR 
+THOR (
