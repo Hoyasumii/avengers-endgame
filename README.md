@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being noc
+(The screen first panels up to an arrow being nock
