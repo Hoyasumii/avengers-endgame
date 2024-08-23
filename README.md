@@ -2264,4 +2264,4 @@ TONY STARK: "No amount of money ever bought a second of time."
 
 HOWARD STARK: Smart guy.
 
-TONY STARK: He did his b
+TONY STARK: He did his be
