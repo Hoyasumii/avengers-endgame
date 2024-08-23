@@ -1464,4 +1464,4 @@ GAMORA (2014): He won't like that.
 
 THANOS (2014): His alternative is death, then. [Thanos wipes his double-bladed sword] Ronan's obsession clouds his judgement.
 
-NEB
+NEBU
