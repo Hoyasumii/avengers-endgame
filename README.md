@@ -28,4 +28,4 @@ NATHANIEL BARTON: How about ketchup?
 
 LAURA BARTON: Ketchup? [Camera switches back to Clint and his daughter] I can do ketchup.
 
-CLINT BARTON: Mind your elbow. [Lila
+CLINT BARTON: Mind your elbow. [Lila 
