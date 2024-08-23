@@ -310,4 +310,4 @@ YEARS
 
 LATER
 
-[We see shots of New York City, seemingly abandoned. T
+[We see shots of New York City, seemingly abandoned. Th
