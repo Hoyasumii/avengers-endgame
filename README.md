@@ -682,4 +682,4 @@ BRUCE BANNER: Right. The whole time travel do-over? Guys, it's outside my area o
 
 NATASHA ROMANOFF: Well, you pulled this off. I remember a time when that seemed pretty impossible time, too.
 
-[The scene cuts to Tony Stark in the kitchen washing dishes after dinner. As he finishes the last of them, stumbles upon a photo of both Stark and P
+[The scene cuts to Tony Stark in the kitchen washing dishes after dinner. As he finishes the last of them, stumbles upon a photo of both Stark and Pa
