@@ -2858,3 +2858,4 @@ PETER PARKER: Activate Instant Kill!
 [Thanos tries to kill Wanda with his double-bladed sword, but Wanda pushes it away. She then uses her powers to try and crush Thanos.]
 
 THANOS (2014): Rain fire!
+
