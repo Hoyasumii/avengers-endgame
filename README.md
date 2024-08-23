@@ -1378,4 +1378,4 @@ THOR: Yes, I can.
 
 ROCKET: Good.
 
-THOR: I can do thi
+THOR: I can do this
