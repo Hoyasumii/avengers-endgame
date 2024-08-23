@@ -3010,3 +3010,4 @@ THOR: I'm counting on it. Your Majesty.
 VALKYRIE: What will you do?
 
 THOR: I'm not sure. For the first time in a thousand years, I– I have no path. I do have a ride, though.
+
