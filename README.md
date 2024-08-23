@@ -886,4 +886,4 @@ STEVE ROGERS: Me too.
 
 TONY STARK: We got a shot at getting these stones, but I gotta tell you my priorities: Bring back what we lost? I hope, yes. Keep what I got? I have to, at all costs. And... maybe not die trying will be nice.
 
-STEVE ROGERS: Sounds like a deal. [Steve reaches out his hand to shake in the deal, in which Tony repli
+STEVE ROGERS: Sounds like a deal. [Steve reaches out his hand to shake in the deal, in which Tony replie
