@@ -1280,4 +1280,4 @@ BRUCE BANNER: [Sitting up in surprise] Shut the front door.
 
 STEVE ROGERS: All right. We have a plan. Six Stones, three teams. One shot.
 
-[He and t
+[He and th
