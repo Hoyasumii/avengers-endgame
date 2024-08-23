@@ -2849,4 +2849,4 @@ WANDA MAXIMOFF: You will.
 
 PETER PARKER: I got it!
 
-[Peter grabs 
+[Peter grabs t
