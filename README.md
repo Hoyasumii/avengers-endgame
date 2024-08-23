@@ -3131,4 +3131,4 @@ BUCKY BARNES: Sam...
 
 BUCKY BARNES: Go ahead.
 
-[Bucky has a smile formi
+[Bucky has a smile formin
