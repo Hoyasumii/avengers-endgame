@@ -1870,4 +1870,4 @@ FRIGGA (2013): Everyone fails at who they are supposed to be, Thor. The measure 
 
 THOR: I really missed you, Mum.
 
-[scene cu
+[scene cut
