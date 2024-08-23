@@ -3071,4 +3071,4 @@ BRUCE BANNER: Now, remember– You have to return the stones to the exact moment
 
 STEVE ROGERS: Don't worry, Bruce. Clip all the branches.
 
-BRUCE BANNER: You know, I tried. When I had the gauntl
+BRUCE BANNER: You know, I tried. When I had the gauntle
