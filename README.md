@@ -2905,4 +2905,4 @@ PETER PARKER: [Gets up and passes her the gauntlet] I don't know how you're gonn
 
 WANDA MAXIMOFF: Don't worry.
 
-OKOYE: She's got he
+OKOYE: She's got hel
