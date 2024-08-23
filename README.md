@@ -166,4 +166,4 @@ TONY STARK: I'm fine. I...
 
 RHODEY: Bruce gave him a sedative. He's gonna probably be out for the rest of the day.
 
-CAROL DANVERS: You guys take care of him. And I'll bring him a Xo
+CAROL DANVERS: You guys take care of him. And I'll bring him a Xor
