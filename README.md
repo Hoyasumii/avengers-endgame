@@ -2182,4 +2182,4 @@ CAPTAIN STEVENS (STEVE ROGERS): Hello. Dr. Pym?
 
 HANK PYM: That would be the number that you called. Yes.
 
-CAPTAIN STEVENS (S
+CAPTAIN STEVENS (ST
