@@ -2963,4 +2963,4 @@ TONY STARK (hologram): So I thought I'd probably better record a little greeting
 
 CLINT: You know, I wish there was a way– that I could let her know. That we won. [Looks over to Wanda.] We did it.
 
-WANDA MAXIMOFF: She knows– They both d
+WANDA MAXIMOFF: She knows– They both do
