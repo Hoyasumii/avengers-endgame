@@ -2827,4 +2827,4 @@ THE WASP: What?
 
 SCOTT LANG: It's dead. I have to hotwire it.
 
-THANOS (2014): Wh
+THANOS (2014): Whe
