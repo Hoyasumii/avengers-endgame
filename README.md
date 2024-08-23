@@ -2432,4 +2432,4 @@ THOR: No, that's my point–
 
 CLINT BARTON: It can't– be undone. Or that's at least what the red floating guy had to say. (shouts) Maybe you wanna go talk to him, okay? GO GRAB YOUR HAMMER, AND YOU GO FLY AND TALK TO HIM!
 
-[Clint's anger is quick
+[Clint's anger is quickl
