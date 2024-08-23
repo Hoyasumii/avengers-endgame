@@ -3109,4 +3109,4 @@ BRUCE BANNER: Going quantum. Three, two, one–
 
 BRUCE BANNER: And returning in, five, four, three, two, one–
 
-[Steve doesn't appear on the pad. Bruce looks around the equip
+[Steve doesn't appear on the pad. Bruce looks around the equipm
