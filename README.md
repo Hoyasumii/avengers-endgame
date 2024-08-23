@@ -1786,4 +1786,4 @@ BRUCE BANNER (2023): And these stones have been in a lot of different places thr
 
 TONY STARK (2023): Our history. So, not a lot of convenient spots to just drop in.
 
-CLINT BARTON (
+CLINT BARTON (2
