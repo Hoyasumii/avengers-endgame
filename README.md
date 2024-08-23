@@ -1654,4 +1654,4 @@ TONY STARK: MEDIC! You guys, some help!
 
 ALEXANDER PIERCE (2012): Stark, you--- your chest machine?
 
-[Ant-Man pushes the case, Loki looks at case, Tony Stark grabs the
+[Ant-Man pushes the case, Loki looks at case, Tony Stark grabs the 
