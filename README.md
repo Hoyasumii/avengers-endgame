@@ -1,1 +1,1 @@
-(The screen firs
+(The screen first
