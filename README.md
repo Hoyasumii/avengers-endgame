@@ -3077,4 +3077,4 @@ STEVE ROGERS: Me, too.
 
 Sam Wilson: You know, if you want, I can come with you.
 
-STEVE ROGERS: You're
+STEVE ROGERS: You're 
