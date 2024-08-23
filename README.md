@@ -2340,4 +2340,4 @@ NATASHA ROMANOFF: Whatever it takes.
 
 CLINT BARTON: Whatever it takes.
 
-[Nat
+[Nata
