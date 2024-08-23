@@ -2122,4 +2122,4 @@ TONY STARK: [Leaving the elevator] Good luck on your mission, Captain.
 
 STEVE ROGERS: [Waiting for another floor] Good luck on your project, doctor.
 
-ELEVATOR LADY: You're n
+ELEVATOR LADY: You're ne
