@@ -2666,4 +2666,4 @@ CLINT BARTON: Oh, hey– I know you.
 
 NEBULA: Father.
 
-[Clint gasped and finds out that she's fr
+[Clint gasped and finds out that she's fro
