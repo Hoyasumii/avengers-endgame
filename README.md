@@ -2576,4 +2576,4 @@ CLINT BARTON: [under his breath] Damn.
 
 [Scene cuts to the Sanctuary II and it beams Thanos (2014) fully armoured to the ground. Nebula walks towards him.]
 
-THANOS (2014): 
+THANOS (2014): D
