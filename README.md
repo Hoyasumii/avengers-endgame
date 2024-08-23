@@ -2446,4 +2446,4 @@ STEVE ROGERS: We will.
 
 ROCKET: Boom!
 
-[Tony and Bruce j
+[Tony and Bruce ju
