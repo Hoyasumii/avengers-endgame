@@ -106,4 +106,4 @@ ROCKET: Maybe I am.
 
 STEVE ROGERS: We've been hunting Thanos for three weeks now. Deep Space scans, and satellites, and we got nothing. Tony, you fought him.
 
-TONY STARK: Who told y
+TONY STARK: Who told yo
