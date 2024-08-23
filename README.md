@@ -3065,3 +3065,4 @@ QUILL: [glances at Thor] Me, right?
 
 THOR: Yes, you. Of course. Of course. Of course.
 
+[
