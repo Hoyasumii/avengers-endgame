@@ -1644,4 +1644,4 @@ SCOTT LANG: Here goes!
 
 ALEXANDER PIERCE (2012): Stark?
 
-THOR 
+THOR (
