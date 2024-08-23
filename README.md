@@ -1052,4 +1052,4 @@ THOR: [pauses, but doesn't look up then puts the bottle down] What kind?
 
 [After seeing a Quinjet flown to the capital, the scene cuts to a nightclub in the city of Tokyo, as the entertainment still intact, loads of dead bodies of yakuza members are seen as a hooded figure throws a shuriken at another yakuza member firing at him. They are shouting something in Japanese, as two more men come out of nowhere and draw out their UZIs.]
 
-THUG #1: あいつだ! アキヒコさんを！(Romanized: Aitsu da! Aki
+THUG #1: あいつだ! アキヒコさんを！(Romanized: Aitsu da! Akih
