@@ -1322,4 +1322,4 @@ THE ANCIENT ONE (2012): You're about... five years too early. Stephen Strange is
 
 BRUCE BANNER: That, actually.
 
-[He points towards the Eye of Agamotto where the Time Stone is kept. The Ancient One (2012) 
+[He points towards the Eye of Agamotto where the Time Stone is kept. The Ancient One (2012) l
