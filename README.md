@@ -84,4 +84,4 @@ PEPPER POTTS: Oh, my God! Oh, my God! [She and Tony embrace.]
 
 TONY STARK: It's okay.
 
-[Rocket Raccoon sits down with Nebula and takes
+[Rocket Raccoon sits down with Nebula and takes 
