@@ -1934,4 +1934,4 @@ NEBULA: The tool of a thief.
 
 [Nebula uses the tool to open the door that leads to The Orb A.K.A The Power Stone. Nebula tries to walk in but is stopped by Rhodey.]
 
-RHODEY: Whoa, whoa, whoa, whoa...This is the part where spikes co
+RHODEY: Whoa, whoa, whoa, whoa...This is the part where spikes com
