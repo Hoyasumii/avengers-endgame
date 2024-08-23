@@ -2240,4 +2240,4 @@ SECURITY OFFICER: Yeah, this is Chesler. I need every available MPs on sub-level
 
 [Steve walks into a room. Feeling safe, he suddenly see's a picture of himself. Then he's surprised to see his love Margret Carter. Cut to Tony and Howard still talking to each other.]
 
-TONY STARK: So, where are you at 
+TONY STARK: So, where are you at w
