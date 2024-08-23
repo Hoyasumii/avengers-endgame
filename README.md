@@ -296,4 +296,4 @@ ROCKET: What... What did you do?
 
 [Thor looks broken, realizing what he has done.]
 
-THOR: I w
+THOR: I we
