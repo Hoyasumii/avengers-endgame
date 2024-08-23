@@ -478,4 +478,4 @@ NATASHA ROMANOFF: [Also standing up] It's the front gate.
 
 SCOTT LANG: Ant-Man? Ant-Man, I know you know that. I need to talk to you guys.
 
-[Cut to Scott inside
+[Cut to Scott inside 
