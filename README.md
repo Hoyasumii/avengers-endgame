@@ -2762,4 +2762,4 @@ PETER PARKER: What are you doing?
 
 PETER PARKER: Oh, this is nice.
 
-[Cut to Star-Lord Fighting a bunch of Sakaarans, killing all of them except one, which makes him fall over, but a off-screen shot kills him and he drops on Peter. Peter gets up and sees Gamora (2014). Thinking its prese
+[Cut to Star-Lord Fighting a bunch of Sakaarans, killing all of them except one, which makes him fall over, but a off-screen shot kills him and he drops on Peter. Peter gets up and sees Gamora (2014). Thinking its presen
