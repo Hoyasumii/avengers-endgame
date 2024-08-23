@@ -1454,4 +1454,4 @@ GAMORA (2014): One stone isn't six, Nebula.
 
 NEBULA (2014): It’s a start.
 
-GAM
+GAMO
