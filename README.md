@@ -2692,4 +2692,4 @@ NEBULA: You've seen what we become.
 
 GAMORA (2014): Nebula, listen to her.
 
-NEBULA: You ca
+NEBULA: You can
