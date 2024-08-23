@@ -98,4 +98,4 @@ STEVE ROGERS: We don't know. He just opened a portal and walked through.
 
 TONY STARK: What's wrong with him?
 
-ROCKET: Oh, he's pissed. He thinks he failed. Which of c
+ROCKET: Oh, he's pissed. He thinks he failed. Which of co
