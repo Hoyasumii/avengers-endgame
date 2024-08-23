@@ -1930,4 +1930,4 @@ NEBULA: Yeah.
 
 RHODEY: What's that?
 
-NEBULA: The tool of a thi
+NEBULA: The tool of a thie
