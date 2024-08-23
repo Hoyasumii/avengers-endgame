@@ -2480,4 +2480,4 @@ TONY STARK: Yeah.
 
 BRUCE: Lightning won't help you, pal. It's gotta be me.
 
-[Thor lets go of Tony. Sorry, Thor. Ma
+[Thor lets go of Tony. Sorry, Thor. May
