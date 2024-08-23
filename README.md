@@ -510,4 +510,4 @@ STEVE ROGERS: Wait, are you talking about a time machine?
 
 SCOTT LANG: No. No, of course not. No, not a time machine. It's more like a... Yeah, a time machine. I know it's crazy. But I can't stop thinking about it. There's gotta be some way... There's gotta be...some w... it's crazy.
 
-NATASHA ROMANOFF: Scott, I get e-mails from a raccoon, so nothin
+NATASHA ROMANOFF: Scott, I get e-mails from a raccoon, so nothing
