@@ -2462,4 +2462,4 @@ STEVE ROGERS: Thor, just wait. We haven't decided who's gonna put that on yet. T
 
 SCOTT LANG: We should at least discuss it.
 
-THOR: No, no, sitting here staring at that thing is not gonna bring everybody back. I'm th
+THOR: No, no, sitting here staring at that thing is not gonna bring everybody back. I'm the
