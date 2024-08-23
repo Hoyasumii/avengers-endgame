@@ -514,4 +514,4 @@ NATASHA ROMANOFF: Scott, I get e-mails from a raccoon, so nothing sounds crazy a
 
 SCOTT LANG: So who do we talk to about this?
 
-[We cut to a cabin in the woods, at the bank of a lake. We see Tony Stark sitting outside what looks like a tiny shed.] TONY STARK: [Clapping his hand in a famous beat. Clap! C
+[We cut to a cabin in the woods, at the bank of a lake. We see Tony Stark sitting outside what looks like a tiny shed.] TONY STARK: [Clapping his hand in a famous beat. Clap! Cl
