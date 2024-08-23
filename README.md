@@ -1904,3 +1904,4 @@ THOR: No, wait!
 
 [Thor holds out his hand]
 
+R
