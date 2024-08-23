@@ -410,4 +410,4 @@ ROCKET: Okay.
 
 NATASHA ROMANOFF: Alright.
 
-[The Avengers cut off their calls one by 
+[The Avengers cut off their calls one by o
