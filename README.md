@@ -3095,4 +3095,4 @@ STEVE ROGERS: It's gonna be okay, Buck.
 
 Sam Wilson: How long is this gonna take?
 
-BRUCE BANNER: For him? 
+BRUCE BANNER: For him? A
