@@ -1000,4 +1000,4 @@ THOR: [Laughs] So, what's up?
 
 BRUCE BANNER: We need your help. There might be a chance we could fix everything.
 
-THOR: What, like the cable? [bu
+THOR: What, like the cable? [bur
