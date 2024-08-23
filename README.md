@@ -2833,4 +2833,4 @@ CORVUS GLAIVE: She's not responding.
 
 EBONY MAW (2014): [pointing.] Sire!
 
-[Thanos sees 
+[Thanos sees t
