@@ -2114,4 +2114,4 @@ STEVE ROGERS: The idea of me was.
 
 TONY STARK: Right. Well, imagine you're SHIELD, running a quasi-fascistic intelligence organization. Where do you hide it?
 
-STEVE ROGERS: In pla
+STEVE ROGERS: In plai
