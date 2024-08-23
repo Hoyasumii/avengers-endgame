@@ -2977,4 +2977,4 @@ HAPPY: You good? Okay. You hungry?
 
 MORGAN STARK: Mm. Hm.
 
-HAPPY: What d
+HAPPY: What do
