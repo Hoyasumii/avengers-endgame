@@ -428,4 +428,4 @@ RHODEY: Except it isn't. (Nat realizes something.) It's definitely Barton. What 
 
 NATASHA ROMANOFF: Will you find out where he's going next?
 
-RHO
+RHOD
