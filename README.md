@@ -2728,4 +2728,4 @@ SAM WILSON: Hey, Cap, you read me?
 
 [Steve stops and looks around]
 
-SAM WILSON: Cap, it's Sam. Can yo
+SAM WILSON: Cap, it's Sam. Can you
