@@ -128,4 +128,4 @@ TONY STARK: Alive and otherwise what we needed was a suit of armor around the wo
 
 STEVE ROGERS: Well, that didn't work out, did it?
 
-TONY STARK: I said, "we'd lose". You said, 
+TONY STARK: I said, "we'd lose". You said, "W
