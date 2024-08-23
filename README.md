@@ -1826,4 +1826,4 @@ THOR: I always wear this. This is one of my favorites.
 
 [Frigga puts her hand on Thor's face and takes a good look at him}
 
-FRIGGA (2013): What's w
+FRIGGA (2013): What's wr
