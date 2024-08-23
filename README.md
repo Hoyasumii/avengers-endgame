@@ -2809,4 +2809,4 @@ STEVE ROGERS: Get it started. We'll get the stones to you.
 
 HOPE VAN DYNE: We're on it, Cap.
 
-[Scott and Hope s
+[Scott and Hope sh
