@@ -3093,4 +3093,4 @@ STEVE ROGERS: It's gonna be okay, Buck.
 
 [Steve goes over to the Quantum portal and dons the Quantum suit]
 
-Sam Wilson: How long is this
+Sam Wilson: How long is this 
