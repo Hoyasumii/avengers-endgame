@@ -1004,4 +1004,4 @@ THOR: What, like the cable? [burps] Cause that's been driving me bananas for wee
 
 BRUCE BANNER: Like Thanos.
 
-[Thor's smile slowly disappears. He pu
+[Thor's smile slowly disappears. He put
