@@ -426,4 +426,4 @@ RHODEY: Except it isn't. (Nat realizes something.) It's definitely Barton. What 
 
 (In an abrupt moment of silence, she tries to chew her tears and emotional feelings as she eats a sandwich.)
 
-NATASHA ROMANOFF: Will you find out where he's going nex
+NATASHA ROMANOFF: Will you find out where he's going next
