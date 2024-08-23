@@ -1100,4 +1100,4 @@ CLINT BARTON: ...don't give me hope.
 
 NATASHA: I'm sorry I couldn't give it to you sooner.
 
-[We cut to the Avenger's Compound, where we see Thor in a hoodie, drinking a beer and 
+[We cut to the Avenger's Compound, where we see Thor in a hoodie, drinking a beer and w
