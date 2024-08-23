@@ -982,4 +982,4 @@ THOR: NoobMaster. Hey, it's Thor again. You know, the God of Thunder? Listen, bu
 
 KORG: [Thor brings his headphones back] Thank you, Thor.
 
-THOR: Let me know if he bo
+THOR: Let me know if he bot
