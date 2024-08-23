@@ -1198,4 +1198,4 @@ CLINT BARTON: [Holding up the baseball glove and throw it to Stark] Yeah, it wor
 
 [Scene cuts to the Avengers in a room with some hologram displays, showcasing each of the six Infinity Stones, sitting around a table. Tony, Steve and Bruce are pacing at the front, clearly leading the planning of the mission.]
 
-STEVE ROGERS: Okay, so the "how" works. Now we gotta figure out the when and the where. Almost all of us h
+STEVE ROGERS: Okay, so the "how" works. Now we gotta figure out the when and the where. Almost all of us ha
