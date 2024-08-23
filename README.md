@@ -920,4 +920,4 @@ RHODEY: What's up, regular sized man?
 
 [Song "My Supersonic Ship" plays in the background. Cut to Bruce sitting at the back of a Utility car as they traverse the green countryside of Norway. They pass a sign labelled "WELCOME TO NEW ASGARD, PLEASE DRIVE SLOWLY.". They stop at a small town on a port. Bruce and Rocket get out of the car, and look around at the remaining Asgardians, living like normal humans at a port.]
 
-ROCKET: Kind of a step down from 
+ROCKET: Kind of a step down from a
