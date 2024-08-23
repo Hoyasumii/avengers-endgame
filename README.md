@@ -596,4 +596,4 @@ STEVE ROGERS: Tony, I get it. And I'm happy for you, I really am. But this is a 
 
 [We see Cap, Nat and Scott walking back to their car outside Tony's house.]
 
-NATASHA ROMANOFF: He
+NATASHA ROMANOFF: He'
