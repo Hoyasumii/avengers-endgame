@@ -2298,4 +2298,4 @@ CLINT BARTON: Wow– Under different circumstances, this would be totally awesom
 
 [Natasha and Clint starts walking towards the mountain and climb it.]
 
-NATASHA ROMANOFF: I bet the raccoon didn't have to climb a mountain. CLINT BARTON: Technically, he's not a r
+NATASHA ROMANOFF: I bet the raccoon didn't have to climb a mountain. CLINT BARTON: Technically, he's not a ra
