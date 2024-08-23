@@ -2710,4 +2710,4 @@ TONY STARK: Okay, Thor. Hit me.
 
 F.R.I.D.A.Y: Boss, wake up!
 
-[Steve tries to attack Thanos but is easily shielded away by the Mad Titan. Thor's attack on Thanos is blocked by his sword. Thor is beaten and choked by Thanos, as he punches him. Mjolnir is flicked away as Thanos
+[Steve tries to attack Thanos but is easily shielded away by the Mad Titan. Thor's attack on Thanos is blocked by his sword. Thor is beaten and choked by Thanos, as he punches him. Mjolnir is flicked away as Thanos 
