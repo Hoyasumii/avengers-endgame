@@ -173,3 +173,4 @@ CAROL DANVERS: You guys take care of him. And I'll bring him a Xorrian Elixir wh
 NATASHA ROMANOFF: Where are you going?
 
 CAROL DANVERS: To kill Thanos.
+
