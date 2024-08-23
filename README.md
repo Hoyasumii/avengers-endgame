@@ -1938,4 +1938,4 @@ RHODEY: Whoa, whoa, whoa, whoa...This is the part where spikes come out with ske
 
 NEBULA: What are you talking about?
 
-RHODEY: When you break into a place called the temple of the Power 
+RHODEY: When you break into a place called the temple of the Power S
