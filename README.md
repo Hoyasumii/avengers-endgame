@@ -1996,4 +1996,4 @@ THANOS (Memory): Ah...Thank you, Daughter. Perhaps I treated you too harshly...
 
 THANOS (2014): And that, is destiny fulfilled.
 
-EBONY 
+EBONY M
