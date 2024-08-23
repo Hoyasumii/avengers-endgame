@@ -258,4 +258,4 @@ CAROL DANVERS: No satellites, no ships, no armies, no ground defenses of any kin
 
 NEBULA: And that's enough.
 
-[Cut to a shot of a scenic lush tropical fauna. It surrounds a shed on a farm. A scarecrow made of Thanos' armour is seen before we cut to a shot focusing on the burnt Infinity Gauntlet on Thanos' arm. He's walking among his crops, harvesting fruit, and putting them in a sack. He walks over to the shed, with a dragging quality to his legs, like it pains him to walk, presumably his living quarters, 
+[Cut to a shot of a scenic lush tropical fauna. It surrounds a shed on a farm. A scarecrow made of Thanos' armour is seen before we cut to a shot focusing on the burnt Infinity Gauntlet on Thanos' arm. He's walking among his crops, harvesting fruit, and putting them in a sack. He walks over to the shed, with a dragging quality to his legs, like it pains him to walk, presumably his living quarters, a
