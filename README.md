@@ -1434,3 +1434,4 @@ RHODEY: And you? Where are you right now?
 
 [Cuts to a scene of Gamora (2014) and Nebula (2014) fighting some Korbinite soldiers.]
 
+G
