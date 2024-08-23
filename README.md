@@ -383,3 +383,4 @@ CAROL DANVERS: Well, you were closer.
 ROCKET: Yeah. And now we smell like garbage.
 
 NATASHA ROMANOFF: [turns to Okoye] You get a reading on those tremors?
+
