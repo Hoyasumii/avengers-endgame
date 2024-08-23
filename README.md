@@ -2720,4 +2720,4 @@ THOR: I knew it!
 
 [Steve staggeredly tries to get up.]
 
-THANOS (2014): In all my years of conquest– violence– slaughter– It was never personal. But I'll tell you now– what I'm 
+THANOS (2014): In all my years of conquest– violence– slaughter– It was never personal. But I'll tell you now– what I'm a
