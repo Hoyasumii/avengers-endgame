@@ -1214,4 +1214,4 @@ TONY STARK: Correct.
 
 STEVE ROGERS: Let's start with the Aether. Thor, what do you know?
 
-[We see Thor sitting on a chair with his sunglasse
+[We see Thor sitting on a chair with his sunglasses
