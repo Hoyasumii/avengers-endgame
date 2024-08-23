@@ -1570,4 +1570,4 @@ SITWELL (2012): Evidence secure. We're en route to Dr. List. No. No hitches at a
 
 [Elevator opens and HYDRA agents sees Steve. Steve walks in and hits the button to continue down.]
 
-SITWELL (2012): Captain. I thought you were coordinating search and
+SITWELL (2012): Captain. I thought you were coordinating search and 
