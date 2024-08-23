@@ -2218,4 +2218,4 @@ TONY STARK: I have a little girl.
 
 HOWARD STARK: A girl would be nice. Less of a chance she'd turn out exactly like me.
 
-TONY STARK: What'd 
+TONY STARK: What'd b
