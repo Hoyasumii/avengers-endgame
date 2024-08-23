@@ -1229,3 +1229,4 @@ TONY STARK: Awesome. Eggs? Breakfast?
 THOR: I'd like a Bloody Mary, thank you.
 
 [Cut to the Avengers sitting around a table, eating a meal, and Rocket is pacing on the table in front of everyone.]
+
