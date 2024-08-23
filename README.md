@@ -3015,4 +3015,4 @@ THOR: I'm not sure. For the first time in a thousand years, I– I have no path.
 
 ROCKET: Move it or lose it, hairbag.
 
-[scene cuts to Quill sea
+[scene cuts to Quill sear
