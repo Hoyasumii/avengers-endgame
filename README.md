@@ -2316,4 +2316,4 @@ NATASHA ROMANOFF: Oh, good. You tell us where it is. Then we'll be on our way.
 
 RED SKULL (2014): Ah, liebchen– If only it were that easy.
 
-[Red Skull leads Clint and Natasha t
+[Red Skull leads Clint and Natasha to
