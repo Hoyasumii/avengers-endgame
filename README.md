@@ -242,4 +242,4 @@ NEBULA: Approaching jump in 3... 2... 1!
 
 CAROL DANVERS: I'll head down for recon.
 
-[A shot of the passengers inside the Benatar preparing for the impending confro
+[A shot of the passengers inside the Benatar preparing for the impending confron
