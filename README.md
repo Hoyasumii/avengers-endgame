@@ -3075,4 +3075,4 @@ BRUCE BANNER: You know, I tried. When I had the gauntlet, the stones, I really t
 
 STEVE ROGERS: Me, too.
 
-Sam Wilson: You know, if you want, I 
+Sam Wilson: You know, if you want, I c
