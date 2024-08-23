@@ -2773,3 +2773,4 @@ PETER QUILL: Ow.
 GAMORA (2014): [Kicks Peter in the nuts, slightly hurting Peter] Don't– touch– [Kicks him again, this time harder] me!
 
 [Peter falls from the pain, while Gamora (2014) wipes her face.]
+
