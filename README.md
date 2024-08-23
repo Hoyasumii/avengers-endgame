@@ -2,4 +2,4 @@
 
 CLINT BARTON: How about now?
 
-[Both Lila and Clint giggle, as the camera panels into a long shot showing a target nailed on a tree, and the 
+[Both Lila and Clint giggle, as the camera panels into a long shot showing a target nailed on a tree, and the r
