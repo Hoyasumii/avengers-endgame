@@ -524,4 +524,4 @@ TONY STARK: Okay, You should not be wearing that, okay? That is part of a specia
 
 MORGAN STARK: Okay.
 
-TONY STA
+TONY STAR
