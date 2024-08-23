@@ -794,4 +794,4 @@ BRUCE BANNER: Just... It was a bad joke.
 
 NATASHA ROMANOFF: You were kidding, right?
 
-BRUCE BANNER: [Whispering to Nat] I have no idea. We're talking a
+BRUCE BANNER: [Whispering to Nat] I have no idea. We're talking ab
