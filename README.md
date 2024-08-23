@@ -2532,4 +2532,4 @@ THOR: Worth a shot. It's over. It's okay.
 
 CLINT BARTON: (struggling to speak from sheer happiness) Honey. Honey.
 
-SCOTT LANG: Guys– I think it worked
+SCOTT LANG: Guys– I think it worked!
