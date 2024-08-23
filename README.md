@@ -542,4 +542,4 @@ TONY STARK: You like going to the garage, huh? So does daddy. It's fine, actuall
 
 SCOTT LANG: (Cut to after Scott's plan has been explained to Tony) Now, we know what it sounds like...
 
-STEVE ROGERS: Tony, after everything you've seen, is an
+STEVE ROGERS: Tony, after everything you've seen, is any
