@@ -184,4 +184,4 @@ RHODEY: You even know where he is?
 
 CAROL DANVERS: I know people who might.
 
-NEBULA: [Standing behind Carol] Don't bother. I can tell you where Thanos is. Thanos spent a long ti
+NEBULA: [Standing behind Carol] Don't bother. I can tell you where Thanos is. Thanos spent a long tim
