@@ -2573,3 +2573,4 @@ CLINT BARTON: Cap?
 CLINT BARTON: [under his breath] Damn.
 
 [Clint takes the gauntlet and runs towards the opposite direction while the Outriders chase after him.]
+
