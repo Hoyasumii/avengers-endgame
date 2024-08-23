@@ -954,4 +954,4 @@ THOR: [From another room.] Are you here about the cable?
 
 [He walks into view, and the audience's jaw drops. Thor, who is shirtless, has definitely put on more than a couple of pounds since we saw him last.]
 
-THOR: The Cinemax ran out abo
+THOR: The Cinemax ran out abou
