@@ -1552,4 +1552,4 @@ TONY STARK (2012): Whoa, whoa. Hey! Buddy. What do you think? Maximum occupancy 
 
 THOR (2012): Take the stairs.
 
-TONY STARK (2012): Yeah. [Hul
+TONY STARK (2012): Yeah. [Hulk
