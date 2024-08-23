@@ -1372,4 +1372,4 @@ ROCKET: Are you crying?
 
 THOR: No...Yes!
 
-ROCKET: Get it together! You ca
+ROCKET: Get it together! You can
