@@ -1282,4 +1282,4 @@ STEVE ROGERS: All right. We have a plan. Six Stones, three teams. One shot.
 
 [He and the other Avengers walk up and look at the screens determinedly. The shot cuts to the Avengers walking in a file to the Quantum Time machine, wearing the Quantum Suits, albeit with some minor differences for different people. Rhodey has a bulkier repaint of the War machine armour.]
 
-STEVE ROGERS: Five years ago, we lost. All of us. We lost friends... We lost family... We lost a part of ourselves. Today, we have a chance to take it all back. You know your teams, you know your missions. Get the stones, get them back. One round trip each. No mista
+STEVE ROGERS: Five years ago, we lost. All of us. We lost friends... We lost family... We lost a part of ourselves. Today, we have a chance to take it all back. You know your teams, you know your missions. Get the stones, get them back. One round trip each. No mistak
