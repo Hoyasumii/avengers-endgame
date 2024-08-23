@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being nocked into a
+(The screen first panels up to an arrow being nocked into a 
