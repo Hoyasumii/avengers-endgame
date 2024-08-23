@@ -2646,4 +2646,4 @@ THANOS (2014): You could not live with your own failure. And where did that brin
 
 TONY STARK: Yep. We're all kinds of stubborn.
 
-THANOS
+THANOS 
