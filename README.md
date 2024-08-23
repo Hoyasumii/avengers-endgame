@@ -3137,4 +3137,4 @@ Sam Wilson: Cap?
 
 (OLD) STEVE ROGERS: Hi, Sam.
 
-[Old Ste
+[Old Stev
