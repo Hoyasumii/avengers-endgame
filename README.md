@@ -656,4 +656,4 @@ BRUCE BANNER: But, come on, the kid! But he...but you...
 
 SCOTT LANG: I don't want a picture with them.
 
-BRUCE BANNE
+BRUCE BANNER
