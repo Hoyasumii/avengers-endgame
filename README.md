@@ -916,4 +916,4 @@ SCOTT LANG: Oh, God!
 
 RHODEY: What's up, regular sized man?
 
-[As Rhodey walks away, Bruc
+[As Rhodey walks away, Bruce
