@@ -1774,4 +1774,4 @@ THANOS (2014): Where is this other Nebula?
 
 EBONY MAW (2014): In our solar system. On Morag.
 
-THANOS (2014): Can 
+THANOS (2014): Can y
