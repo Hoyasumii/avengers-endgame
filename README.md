@@ -106,4 +106,4 @@ ROCKET: Maybe I am.
 
 STEVE ROGERS: We've been hunting Thanos for three weeks now. Deep Space scans, and satellites, and we got nothing. Tony, you fought him.
 
-TONY STARK: Who told you that? [Surprised] I didn't fight him. No, he wiped my face with a planet while the Bleecker Street Magician gave away the store. 
+TONY STARK: Who told you that? [Surprised] I didn't fight him. No, he wiped my face with a planet while the Bleecker Street Magician gave away the store. T
