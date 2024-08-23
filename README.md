@@ -468,4 +468,4 @@ STEVE ROGERS: I think we both need to get a life.
 
 NATASHA ROMANOFF: [Smiling] You first.
 
-[A camera footage pops up in front of them, showing Scott Lang with his Quantum
+[A camera footage pops up in front of them, showing Scott Lang with his Quantum 
