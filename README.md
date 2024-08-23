@@ -366,4 +366,4 @@ CASSIE LANG: Dad? [Both of them emotionally hug each other as both dad and daugh
 
 SCOTT LANG: You're so big!
 
-[Both dad and daughter shar
+[Both dad and daughter share
