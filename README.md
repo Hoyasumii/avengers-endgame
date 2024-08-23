@@ -390,4 +390,4 @@ NATASHA ROMANOFF: Do we have a visual? How are we handling it?
 
 OKOYE: Nat, it's an earthquake under the ocean. We handle it by not handling it.
 
-NATASHA ROMANO
+NATASHA ROMANOF
