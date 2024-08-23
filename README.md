@@ -2292,4 +2292,4 @@ NEBULA (2014): That's enough. [kicks Present Nebula to the wall and pulls out he
 
 NEBULA (2014): How do I look?
 
-[Scene cuts to Vormir 2014 where Natasha a
+[Scene cuts to Vormir 2014 where Natasha an
