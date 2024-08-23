@@ -816,4 +816,4 @@ BRUCE BANNER: What's going on?
 
 NATASHA ROMANOFF: That...who is that?
 
-[He pushes another coup
+[He pushes another coupl
