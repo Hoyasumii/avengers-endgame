@@ -2811,4 +2811,4 @@ HOPE VAN DYNE: We're on it, Cap.
 
 [Scott and Hope share a look and they shrink. Scott grabs Hope, and they fly to the van. Doctor Strange traps a group of Chitauri in his magic and sends them through portals as Tony joins him.]
 
-TONY STARK: Hey. You said one out of 14 million, we win, yeah? Tell 
+TONY STARK: Hey. You said one out of 14 million, we win, yeah? Tell m
