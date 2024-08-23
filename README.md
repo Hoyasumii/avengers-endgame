@@ -3139,4 +3139,4 @@ Sam Wilson: Cap?
 
 [Old Steve looks over to Sam]
 
-Sam Wilson: S
+Sam Wilson: So
