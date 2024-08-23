@@ -2380,4 +2380,4 @@ CLINT BARTON: Tell my family I love them.
 
 NATASHA ROMANOFF: You tell them yourself.
 
-[Natasha electrocutes Clint and she runs towards the cliff. Clint gets up and shoots an explosive arrow knocking her do
+[Natasha electrocutes Clint and she runs towards the cliff. Clint gets up and shoots an explosive arrow knocking her dow
