@@ -1824,4 +1824,4 @@ FRIGGA (2013): What are you wearing?
 
 THOR: I always wear this. This is one of my favorites.
 
-[F
+[Fr
