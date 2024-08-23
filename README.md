@@ -798,4 +798,4 @@ BRUCE BANNER: [Whispering to Nat] I have no idea. We're talking about time trave
 
 SCOTT LANG: Perfectly not confusing.
 
-STEVE ROGERS: Goo
+STEVE ROGERS: Good
