@@ -2766,4 +2766,4 @@ PETER PARKER: Oh, this is nice.
 
 PETER QUILL: Gamora? [Peter slowly approaches Gamora (2014)] I thought I lost you.
 
-[Peter touches Gamora's hair, not knowing she isn't present Gamora. In response, Gamor
+[Peter touches Gamora's hair, not knowing she isn't present Gamora. In response, Gamora
