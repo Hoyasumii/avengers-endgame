@@ -692,4 +692,4 @@ F.R.I.D.A.Y: Processing...
 
 TONY STARK: Give me that eigenvalue. That, particle factoring, and a spectral decomp. That will take a second.
 
-F.R.I.D.A.Y: Jus
+F.R.I.D.A.Y: Just
