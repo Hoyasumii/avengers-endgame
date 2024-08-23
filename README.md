@@ -1404,4 +1404,4 @@ CLINT BARTON: [To Rhodey] Hey. You got this.
 
 RHODEY: Let's get it done. Yes, sir.
 
-NATASHA ROMANOFF: [Walking with Clint ba
+NATASHA ROMANOFF: [Walking with Clint bac
