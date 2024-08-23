@@ -840,4 +840,4 @@ BRUCE BANNER: I'm working on it! [Tapping the side of the button pad, trying to 
 
 STEVE ROGERS: It's a baby. [seriously?]
 
-BRUCE BANNER: It's
+BRUCE BANNER: It's 
