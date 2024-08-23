@@ -228,4 +228,4 @@ STEVE ROGERS: Let's go get this son of a bitch.
 
 [Cut to a shot of everyone except for Tony aboard the Benatar.]
 
-ROCKET: Okay, who here hasn't been to spa
+ROCKET: Okay, who here hasn't been to spac
