@@ -3151,4 +3151,4 @@ Sam Wilson: I'm happy for you. Truly.
 
 (OLD) STEVE ROGERS: Thank you.
 
-Sam Wilson: Only thing bumming me out is the f
+Sam Wilson: Only thing bumming me out is the fa
