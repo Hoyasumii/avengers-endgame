@@ -1456,4 +1456,4 @@ NEBULA (2014): It’s a start.
 
 GAMORA (2014): If he gets all of them...
 
-[Thanos (2014) arrives, honking badass double-bladed sword in tow and healthy coating blood of his ar
+[Thanos (2014) arrives, honking badass double-bladed sword in tow and healthy coating blood of his arm
