@@ -404,4 +404,4 @@ CAROL DANVERS: So you might not see me for a long time.
 
 NATASHA ROMANOFF: Alright. Uh, well. This channel is always active. So, if anything goes sideways... anyone's making trouble where they shouldn't... comes through me.
 
-[
+[O
