@@ -2322,4 +2322,4 @@ RED SKULL (2014): What you seek lies in front of you... as does what you fear.
 
 NATASHA ROMANOFF: The stone is down there.
 
-RED SKULL (2014): For one of you. For the other... In order to take the stone, you must lose that which you love. An everlasting exchange. A soul, for a soul
+RED SKULL (2014): For one of you. For the other... In order to take the stone, you must lose that which you love. An everlasting exchange. A soul, for a soul.
