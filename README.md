@@ -632,4 +632,4 @@ GIRL: Excuse me, Mr. Hulk?
 
 BRUCE BANNER: Yes?
 
-GIRL: Can we get 
+GIRL: Can we get a
