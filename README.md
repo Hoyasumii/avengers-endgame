@@ -1280,4 +1280,4 @@ BRUCE BANNER: [Sitting up in surprise] Shut the front door.
 
 STEVE ROGERS: All right. We have a plan. Six Stones, three teams. One shot.
 
-[He and the other Avengers walk up and look at the screens determinedly. The shot cuts to the Avengers walking in a file to the Quantum Time machine, wearing the Quantum Suits, albeit with some minor differences
+[He and the other Avengers walk up and look at the screens determinedly. The shot cuts to the Avengers walking in a file to the Quantum Time machine, wearing the Quantum Suits, albeit with some minor differences 
