@@ -1958,4 +1958,4 @@ RHODEY: Sync up. [They both suit up.] Three.. two.. one...
 
 [Sanctuary II. 2014 Nebula is being scanned in synch with her future self. A memory is played, coming from future Nebula's head.]
 
-BRUCE (Memory): You murder
+BRUCE (Memory): You murdere
