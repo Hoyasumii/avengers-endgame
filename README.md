@@ -2720,4 +2720,4 @@ THOR: I knew it!
 
 [Steve staggeredly tries to get up.]
 
-THANOS (2014): In all my years of 
+THANOS (2014): In all my years of c
