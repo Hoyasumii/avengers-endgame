@@ -1836,4 +1836,4 @@ THOR: [Pretending] Yes, I am.
 
 FRIGGA (2013): The future hasn't been kind to you, has it?
 
-THOR: I didn't say I'm from the futu
+THOR: I didn't say I'm from the futur
