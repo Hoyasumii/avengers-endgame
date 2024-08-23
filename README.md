@@ -3115,4 +3115,4 @@ Sam Wilson: Where is he?
 
 BRUCE BANNER: I don't know. He blew right by his time stamp. He should be here.
 
-[Bucky turns around from the p
+[Bucky turns around from the pa
