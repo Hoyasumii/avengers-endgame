@@ -3091,4 +3091,4 @@ BUCKY BARNES: Gonna miss you, Buddy.
 
 STEVE ROGERS: It's gonna be okay, Buck.
 
-[Steve goes over to the Quantum portal and dons the Quantum su
+[Steve goes over to the Quantum portal and dons the Quantum sui
