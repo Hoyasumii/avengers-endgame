@@ -1710,4 +1710,4 @@ STEVE ROGERS: Bucky... is... alive!
 
 STEVE ROGERS (2012): What?
 
-[Future Steve takes the chance to sucker punch his count
+[Future Steve takes the chance to sucker punch his counte
