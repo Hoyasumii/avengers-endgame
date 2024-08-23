@@ -354,4 +354,4 @@ Scott Lang: No. Please. Please, please. [moves on to check the other side of the
 
 Scott Lang: [in a mantra-like] Please, please, please, please... No, Cassie. [Lang looks at the engraved stone in shock, revealing his name in it.]
 
-S
+Sc
