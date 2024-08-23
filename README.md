@@ -1144,4 +1144,4 @@ RHODEY: [In a tone that says it's what we're all thinking.] It's Thanos.
 
 BRUCE BANNER: ...And secondly, time doesn't work that way. Changing the past doesn't change the future.
 
-SCOTT LANG: Look, we go back, we get the stones before Thanos gets them... Thanos doesn't have the stones. 
+SCOTT LANG: Look, we go back, we get the stones before Thanos gets them... Thanos doesn't have the stones. P
