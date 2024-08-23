@@ -1226,4 +1226,4 @@ THOR: Where to start? Umm... The Aether, first, is not a stone, someone called i
 
 TONY STARK: Awesome. Eggs? Breakfast?
 
-THOR: I'd like a Blood
+THOR: I'd like a Bloody
