@@ -418,4 +418,4 @@ CAROL DANVERS: [To Rhodey] Good luck. [cuts off call]
 
 NATASHA ROMANOFF: Where are you?
 
-RHODEY: Mexico. The F
+RHODEY: Mexico. The Fe
