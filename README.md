@@ -2010,4 +2010,4 @@ NEBULA (2014): That's not me. It's not. I could never... I would never betray yo
 
 THANOS (2014): I know. And you'll have the chance to prove it.
 
-[Thanos (2014) makes sure Nebula cannot travel back to 2023. Nebula is
+[Thanos (2014) makes sure Nebula cannot travel back to 2023. Nebula is 
