@@ -2558,4 +2558,4 @@ BRUCE BANNER: Rhodey!
 
 RHODEY: Mayday, mayday! Does anybody copy? We're in the lower level, it's flooding!
 
-SCOTT LANG: Wh
+SCOTT LANG: Wha
