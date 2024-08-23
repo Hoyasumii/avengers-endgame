@@ -3147,4 +3147,4 @@ Sam Wilson: How'd that work out for you?
 
 (OLD) STEVE ROGERS: It was beautiful.
 
-Sam Wilson: I'm happy for you.
+Sam Wilson: I'm happy for you. 
