@@ -3067,4 +3067,4 @@ THOR: Yes, you. Of course. Of course. Of course.
 
 [Scene cuts to Bruce, Steve, Sam and Bucky at the funeral]
 
-BRUCE BANNER: Now, remember– You have to return the sto
+BRUCE BANNER: Now, remember– You have to return the ston
