@@ -984,4 +984,4 @@ KORG: [Thor brings his headphones back] Thank you, Thor.
 
 THOR: Let me know if he bothers you again, okay?
 
-KORG: 
+KORG: T
