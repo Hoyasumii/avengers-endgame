@@ -2875,4 +2875,4 @@ STEVE: Hey, Queens, heads up.
 
 [Steve throws Mjolnir, and Peter shoots a web and glides along, then Pepper Potts catches him]
 
-PEPPER POTTS: Hang on. I got you, kid. [She drops him on Valkyrie's
+PEPPER POTTS: Hang on. I got you, kid. [She drops him on Valkyrie's 
