@@ -288,4 +288,4 @@ RHODEY: We have to tear this place apart, he-he-he has to be lying.
 
 NEBULA: My father is many things. A liar is not one of them.
 
-THANOS: Ah, thank you, daughte
+THANOS: Ah, thank you, daughter
