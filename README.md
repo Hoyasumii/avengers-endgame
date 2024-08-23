@@ -3047,4 +3047,4 @@ THOR: It's not.
 
 QUILL: Okay?
 
-ROCKET: I got some bl
+ROCKET: I got some bla
