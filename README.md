@@ -1090,4 +1090,4 @@ NATASHA ROMANOFF: Is that what you're calling this? Killing all these people isn
 
 [Clint starts to look emotional, on the verge of crying.]
 
-NATASHA ROMANOFF: We found something. A chance, mayb
+NATASHA ROMANOFF: We found something. A chance, maybe
