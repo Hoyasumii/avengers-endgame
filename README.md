@@ -408,4 +408,4 @@ NATASHA ROMANOFF: Alright. Uh, well. This channel is always active. So, if anyth
 
 ROCKET: Okay.
 
-NATASHA ROMANOFF: Alrigh
+NATASHA ROMANOFF: Alright
