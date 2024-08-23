@@ -2478,4 +2478,4 @@ THOR: Lightning.
 
 TONY STARK: Yeah.
 
-BRUCE: Lightning won't help yo
+BRUCE: Lightning won't help you
