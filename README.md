@@ -1748,4 +1748,4 @@ BRUCE BANNER: Yes!
 
 THE ANCIENT ONE (2012): ...Why?
 
-BRUCE BANNER: I have no idea. Maybe he made a mi
+BRUCE BANNER: I have no idea. Maybe he made a mis
