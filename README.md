@@ -2154,4 +2154,4 @@ HOWARD STARK: Well, I'm Howard Stark. [Holds out hand to shake.]
 
 TONY STARK: Hi. [Holds Howard's finger]
 
-HOWARD STARK: Shake it, don
+HOWARD STARK: Shake it, don'
