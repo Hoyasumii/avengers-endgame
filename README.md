@@ -2425,3 +2425,4 @@ CLINT BARTON: It can't be undone. It can't.
 [Thor dryly laughs.]
 
 THOR: I'm sorry. No offense, but you're a very earthly being. Okay? We're talking about space magic. And "can't" seems very definitive don't you think?
+
