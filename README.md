@@ -2052,4 +2052,4 @@ SCOTT LANG: No, no, no. There's no other options. There's no do-overs. We're not
 
 STEVE ROGERS: Yeah, well if we don't try, then no one else is going home, either.
 
-TONY STARK: I got it. There's another way. To retake the Tesseract and acquire new particles. We'll stroll down memory lane. Military installation, Gar
+TONY STARK: I got it. There's another way. To retake the Tesseract and acquire new particles. We'll stroll down memory lane. Military installation, Gard
