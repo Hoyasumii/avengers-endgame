@@ -310,4 +310,4 @@ YEARS
 
 LATER
 
-[We see shots of New York City, seemingly abandoned. There are a lot of boats gathered around a dock, all abandoned. A baseball stadium comes into view, with no life present at all. The aftermath of th
+[We see shots of New York City, seemingly abandoned. There are a lot of boats gathered around a dock, all abandoned. A baseball stadium comes into view, with no life present at all. The aftermath of the
