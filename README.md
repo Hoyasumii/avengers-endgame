@@ -1794,4 +1794,4 @@ TONY STARK (2023): Correct.
 
 THANOS (2014): [To Ebony Maw] Freeze image.
 
-GAMORA (2014
+GAMORA (2014)
