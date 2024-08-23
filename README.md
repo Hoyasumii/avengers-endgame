@@ -1514,4 +1514,4 @@ TONY STARK (2012): STRIKE team's coming to secure it.
 
 [A Hydra team including Rumlow and Sitwell enter, known at this time as a part of SHIELD.]
 
-SITWELL (2012): We can take that [Taking Loki's Scep
+SITWELL (2012): We can take that [Taking Loki's Scept
