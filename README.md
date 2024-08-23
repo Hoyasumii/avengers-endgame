@@ -490,4 +490,4 @@ SCOTT LANG: Have you ever studied Quantum Physics?
 
 NATASHA ROMANOFF: Only to make conversation.
 
-SCOTT LANG: Alrigh
+SCOTT LANG: Alright
