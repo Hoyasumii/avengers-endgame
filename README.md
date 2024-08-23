@@ -2939,4 +2939,4 @@ TONY STARK: [quietly] Hey, Pep..
 
 PEPPER POTTS: F.R.I.D.A.Y.?
 
-F.R.I.D.A.Y.: Life functio
+F.R.I.D.A.Y.: Life function
