@@ -1842,4 +1842,4 @@ FRIGGA (2013): I was raised by witches, boy. I see with more than eyes, and you 
 
 [Thor attempts to hold back his tears and fails miserably.]
 
-THOR: [voice breaking up] I am totall
+THOR: [voice breaking up] I am totally
