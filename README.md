@@ -1456,4 +1456,4 @@ NEBULA (2014): It’s a start.
 
 GAMORA (2014): If he gets all of them...
 
-[Thanos (201
+[Thanos (2014
