@@ -928,4 +928,4 @@ VALKYRIE: You shouldn't have come!
 
 BRUCE BANNER: Ah, Valkyrie! Great to see you, Angry Girl.
 
-VALKYRIE: [Noticing Br
+VALKYRIE: [Noticing Bru
