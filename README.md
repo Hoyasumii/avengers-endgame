@@ -802,4 +802,4 @@ STEVE ROGERS: Good luck, Scott. You got this.
 
 SCOTT LANG: You're right. I do, Captain America.
 
-[Bruce presses a button, and Scott dis
+[Bruce presses a button, and Scott disa
