@@ -1944,4 +1944,4 @@ RHODEY: When you break into a place called the temple of the Power Stone, There'
 
 RHODEY: Okay. All right. Go ahead.
 
-[Nebula f
+[Nebula fo
