@@ -2360,4 +2360,4 @@ NATASHA ROMANOFF: What, you think I wanna do it? I'm trying to save your life, y
 
 CLINT BARTON: Yeah, well, I don't want you to, because I– Natasha, you know what I've done. You know what I've become.
 
-NATASHA ROMANOFF: I don't judge peop
+NATASHA ROMANOFF: I don't judge peopl
