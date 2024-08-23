@@ -990,4 +990,4 @@ THOR: So you guys want a drink? What are you drinking? We have beer, tequila, al
 
 [Thor uses Stormbreaker to open a bottle of beer and starts drinking. Bruce walks to him and places a hand on his shoulder]
 
-BRUCE BA
+BRUCE BAN
