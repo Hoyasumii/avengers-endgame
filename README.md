@@ -1873,3 +1873,4 @@ THOR: I really missed you, Mum.
 [scene cuts to Rocket running away from the Asgardian soldiers]
 
 ROCKET: Thor! I got it!
+
