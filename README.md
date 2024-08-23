@@ -1994,4 +1994,4 @@ THANOS (Memory): Ah...Thank you, Daughter. Perhaps I treated you too harshly...
 
 [Thanos gets beheaded in the memory, Gamora (2014) is shocked and stands up]
 
-THANOS (2014): A
+THANOS (2014): An
