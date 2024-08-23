@@ -986,4 +986,4 @@ THOR: Let me know if he bothers you again, okay?
 
 KORG: Thank you very much. I will.
 
-THOR: So you guys want a drink? What are you drinking? We 
+THOR: So you guys want a drink? What are you drinking? We h
