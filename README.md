@@ -598,4 +598,4 @@ STEVE ROGERS: Tony, I get it. And I'm happy for you, I really am. But this is a 
 
 NATASHA ROMANOFF: He's scared.
 
-STEVE ROGERS: 
+STEVE ROGERS: H
