@@ -396,4 +396,4 @@ CAROL DANVERS: Not likely.
 
 ROCKET: What, you gonna get another haircut?
 
-CAROL DAN
+CAROL DANV
