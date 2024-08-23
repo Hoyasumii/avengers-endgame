@@ -414,4 +414,4 @@ NATASHA ROMANOFF: Alright.
 
 CAROL DANVERS: [To Rhodey] Good luck. [cuts off call]
 
-[Except f
+[Except fo
