@@ -1736,4 +1736,4 @@ BRUCE BANNER: We will. I will. I promise.
 
 THE ANCIENT ONE (2012): I can't risk this Reality on a promise. It is the duty of the Sorcerer Supreme to protect the Time Stone.
 
-BRUC
+BRUCE
