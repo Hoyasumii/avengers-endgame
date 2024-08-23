@@ -2598,4 +2598,4 @@ NEBULA (2014): What will you do?
 
 THANOS (2014): Wait.
 
-[Nebula (2014) proceeds 
+[Nebula (2014) proceeds t
