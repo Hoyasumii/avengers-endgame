@@ -2492,4 +2492,4 @@ BRUCE BANNER: We don't. But the radiation's mostly gamma. [He takes a good look 
 
 TONY STARK: Good to go, yeah?
 
-BRUCE BANNER: 
+BRUCE BANNER: L
