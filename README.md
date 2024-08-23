@@ -276,4 +276,4 @@ BRUCE BANNER: You murdered trillions! [Bruce pushes him to the ground wearing Hu
 
 THANOS: You should be grateful. [Punched by Hulk Buster]
 
-NATAS
+NATASH
