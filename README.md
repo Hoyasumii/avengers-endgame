@@ -2640,4 +2640,4 @@ TONY STARK: Yeah. And I don't much care.
 
 THOR: Good. Just as long we are all in agreement. [Thunder cracks as Thor stretches out both hands to summon both Stormbreaker and Mjolnir (2013). His casual clothes transform into his armour and cape, with his beard getting some braid treatment.] Let's kill him properly this time.
 
-[
+[T
