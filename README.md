@@ -20,4 +20,4 @@ CLINT BARTON: Probably your brothers.
 
 [Clint looks at his wife, Laura]
 
-CLINT BARTON: Uh, t
+CLINT BARTON: Uh, tw
