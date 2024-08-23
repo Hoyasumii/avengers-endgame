@@ -1542,4 +1542,4 @@ SCOTT LANG: [Lying down on Tony's shoulder] Alright. Flick me.
 
 [Tony flicks Scott onto his 2012 self, right into his beard. 2012 Tony then scratches his beard, dropping present Scott onto 2012 Tony's reactor.]
 
-[All of the 2012 Avengers get in an elevator. Hulk makes to follow, but finds the
+[All of the 2012 Avengers get in an elevator. Hulk makes to follow, but finds the 
