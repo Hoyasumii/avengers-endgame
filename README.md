@@ -2646,4 +2646,4 @@ THANOS (2014): You could not live with your own failure. And where did that brin
 
 TONY STARK: Yep. We're all kinds of stubborn.
 
-THANOS (2014): I'm thankful. Because now, I know what I must do. [s
+THANOS (2014): I'm thankful. Because now, I know what I must do. [st
