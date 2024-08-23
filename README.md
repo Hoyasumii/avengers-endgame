@@ -140,4 +140,4 @@ TONY STARK: Okay...
 
 RHODEY: Okay?
 
-TONY STARK: Nah, nah. Here's my po
+TONY STARK: Nah, nah. Here's my poi
