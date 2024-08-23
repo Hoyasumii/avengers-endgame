@@ -2708,4 +2708,4 @@ TONY STARK: Okay, Thor. Hit me.
 
 [Thor bangs his 2 hammers together combined with his lightning. Tony's suit sucks up the energy and he shoots it out using his hands and his body. Thanos twirls his blade really fast to divert the energy. Thor grabs Stormbreaker and uses it to bat Mjölnir to hit Thanos. Thanos uses Tony as a shield resulting in damage to his system.]
 
-F.R.I.D.A.Y: Boss, 
+F.R.I.D.A.Y: Boss, w
