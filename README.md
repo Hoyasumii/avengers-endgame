@@ -264,4 +264,4 @@ NEBULA: And that's enough.
 
 [Captain America walks in his Winter Soldier Outfit, with Natasha right behind him, staring murderously at Thanos. Rocket goes over to the sliced off Infinity Gauntlet, and kicks it over, as everyone realizes that there are no stones in it.]
 
-ROC
+ROCK
