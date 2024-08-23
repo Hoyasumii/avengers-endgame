@@ -1678,4 +1678,4 @@ TONY STARK (2012): The case?
 
 THOR (2012): The case. It's, uhh... Where's the case? Where's Loki? Loki!
 
-SCOTT LANG: That wasn't supposed t
+SCOTT LANG: That wasn't supposed to
