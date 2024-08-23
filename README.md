@@ -834,4 +834,4 @@ BRUCE BANNER: Can I get a little space here.
 
 STEVE ROGERS: Yeah yeah. Can you bring him back?
 
-BRUCE BANNER: I'm wo
+BRUCE BANNER: I'm wor
