@@ -1022,4 +1022,4 @@ KORG: Umm... Stormbreaker?
 
 THOR: Now, who's swingin' Stormbreaker?
 
-BRUCE BANNER: I get it. You're in a rough spot, okay? 
+BRUCE BANNER: I get it. You're in a rough spot, okay? I
