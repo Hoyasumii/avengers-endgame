@@ -2893,4 +2893,4 @@ ROCKET: Oh, yeah!
 
 STEVE ROGERS: Danvers, we need an assist here.
 
-[Cu
+[Cut
