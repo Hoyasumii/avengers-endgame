@@ -1204,4 +1204,4 @@ TONY STARK: Well I'd substitute the word encounter for damn well near been kille
 
 SCOTT LANG: I haven't, I don't even know what the hell you're all talking about.
 
-BRUCE BANNER: Regardless, 
+BRUCE BANNER: Regardless, w
