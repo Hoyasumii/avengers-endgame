@@ -2194,4 +2194,4 @@ CAPTAIN STEVENS (STEVE ROGERS): Well, it's just– Sir, the box is glowing and, 
 
 HANK PYM: They didn't open it, did they?
 
-CAPTAIN STEVENS (STEVE ROGERS): Yeah, they did. You better get d
+CAPTAIN STEVENS (STEVE ROGERS): Yeah, they did. You better get do
