@@ -948,4 +948,4 @@ VALKYRIE: Yeah.
 
 ROCKET: [Grimacing at the smell] What the... Woo! Something died in here.
 
-BRUCE BANNER: He
+BRUCE BANNER: Hel
