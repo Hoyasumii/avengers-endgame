@@ -382,4 +382,4 @@ CAROL DANVERS: Well, you were closer.
 
 ROCKET: Yeah. And now we smell like garbage.
 
-NATASHA ROMANOFF: [turns to O
+NATASHA ROMANOFF: [turns to Ok
