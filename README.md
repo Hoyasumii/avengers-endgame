@@ -770,4 +770,4 @@ PEPPER POTTS: It sort a seems like you can.
 
 TONY STARK: Not if I stop. I can put a pin in it right now, and stop.
 
-PEPPER POTTS: Tony, trying to get you to stop has be
+PEPPER POTTS: Tony, trying to get you to stop has bee
