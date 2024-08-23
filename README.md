@@ -388,4 +388,4 @@ OKOYE: It was a mild subduction under the African plate.
 
 NATASHA ROMANOFF: Do we have a visual? How are we handling it?
 
-OKOYE: Nat, it'
+OKOYE: Nat, it's
