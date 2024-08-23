@@ -2731,3 +2731,4 @@ SAM WILSON: Hey, Cap, you read me?
 SAM WILSON: Cap, it's Sam. Can you hear me?
 
 [A yellow portal begins to form behind him.]
+
