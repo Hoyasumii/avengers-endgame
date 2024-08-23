@@ -1942,4 +1942,4 @@ RHODEY: When you break into a place called the temple of the Power Stone, There'
 
 [Nebula just shakes her head and walks in.]
 
-RHODEY: Okay. All r
+RHODEY: Okay. All ri
