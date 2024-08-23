@@ -1230,4 +1230,4 @@ THOR: I'd like a Bloody Mary, thank you.
 
 [Cut to the Avengers sitting around a table, eating a meal, and Rocket is pacing on the table in front of everyone.]
 
-ROCKET: Quill said he s
+ROCKET: Quill said he st
