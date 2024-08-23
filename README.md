@@ -2422,4 +2422,4 @@ THOR: Wha– what?
 
 CLINT BARTON: It can't be undone. It can't.
 
-[Thor dryly lau
+[Thor dryly laug
