@@ -1822,4 +1822,4 @@ THOR: Yeah, I was simply just going for a walk, and uh... [Trying to hide his be
 
 FRIGGA (2013): What are you wearing?
 
-THOR: I always wear this. This is one
+THOR: I always wear this. This is one 
