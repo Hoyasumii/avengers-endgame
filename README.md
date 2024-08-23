@@ -3047,4 +3047,4 @@ THOR: It's not.
 
 QUILL: Okay?
 
-ROCKET: I got some blasters, unless y
+ROCKET: I got some blasters, unless yo
