@@ -622,4 +622,4 @@ SCOTT LANG: Yeah! Wh...How? Why?
 
 BRUCE BANNER: Five years ago, we got our asses beaten. Except it was worse for me. Because I lost twice. First, Hulk lost, then Banner lost. Then, we all lost.
 
-NATASHA ROMANOFF: No one blamed you, Br
+NATASHA ROMANOFF: No one blamed you, Bru
