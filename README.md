@@ -1872,4 +1872,4 @@ THOR: I really missed you, Mum.
 
 [scene cuts to Rocket running away from the Asgardian soldiers]
 
-ROC
+ROCK
