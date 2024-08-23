@@ -1936,4 +1936,4 @@ NEBULA: The tool of a thief.
 
 RHODEY: Whoa, whoa, whoa, whoa...This is the part where spikes come out with skeletons on the end and everything...
 
-NEBULA: What are you 
+NEBULA: What are you t
