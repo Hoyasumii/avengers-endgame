@@ -570,4 +570,4 @@ STEVE ROGERS: I don't believe we would.
 
 TONY STARK: Gotta say, sometimes I miss that giddy optimism. However, high hopes won't help if there's no logical, tangible way for me to safely execute said time heist. I believe the most likely outcome would be our collective demise.
 
-SCOTT LANG: Not if we strictly follow the rules of time trave
+SCOTT LANG: Not if we strictly follow the rules of time travel
