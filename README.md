@@ -2702,4 +2702,4 @@ GAMORA (2014): NO!
 
 [Present Nebula shoots Nebula (2014) and she dies. Hawkeye picks up the Infinity Gauntlet]
 
-[Cut to the 3 heroes battling Th
+[Cut to the 3 heroes battling Tha
