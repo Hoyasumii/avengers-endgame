@@ -1884,4 +1884,4 @@ THOR: But this is about your future.
 
 FRIGGA (2013): It's none of my business. [does she know?]
 
-ROCKET: Hey. You must be Mom. I got the thi
+ROCKET: Hey. You must be Mom. I got the thin
