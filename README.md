@@ -3040,3 +3040,4 @@ DRAX: You should fight one another for the honor of leadership.
 NEBULA: Sounds fair.
 
 [Quill looks around]
+
