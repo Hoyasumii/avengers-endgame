@@ -1086,4 +1086,4 @@ NATASHA ROMANOFF: Neither should you.
 
 CLINT BARTON: I've got a job to do.
 
-NATASHA ROMANOFF: Is that what you're cal
+NATASHA ROMANOFF: Is that what you're call
