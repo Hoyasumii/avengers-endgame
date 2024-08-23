@@ -927,3 +927,4 @@ BRUCE BANNER: Hey, have a little compassion, pal. First they've lost Asgard, the
 VALKYRIE: You shouldn't have come!
 
 BRUCE BANNER: Ah, Valkyrie! Great to see you, Angry Girl.
+
