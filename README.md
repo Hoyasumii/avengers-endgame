@@ -2430,4 +2430,4 @@ CLINT BARTON: (to Thor) Yeah, look, I know that I'm way outside my paygrade here
 
 THOR: No, that's my point–
 
-CLINT 
+CLINT B
