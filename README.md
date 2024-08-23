@@ -988,4 +988,4 @@ KORG: Thank you very much. I will.
 
 THOR: So you guys want a drink? What are you drinking? We have beer, tequila, all sorts of things.
 
-[Thor uses Stormbreaker to open a bottle of beer and 
+[Thor uses Stormbreaker to open a bottle of beer and s
