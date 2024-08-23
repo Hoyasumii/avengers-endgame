@@ -2696,4 +2696,4 @@ NEBULA: You can change.
 
 NEBULA (2014): He won't let me.
 
-[Nebul
+[Nebula
