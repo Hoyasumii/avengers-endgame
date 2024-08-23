@@ -3098,3 +3098,4 @@ Sam Wilson: How long is this gonna take?
 BRUCE BANNER: For him? As long as he needs. For us? Five seconds.
 
 [Steve picks up Mjolnir (2013)]
+
