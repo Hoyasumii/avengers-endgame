@@ -432,4 +432,4 @@ RHODEY: Nat...
 
 NATASHA ROMANOFF: Please.
 
-RHODEY: [reluctantly] Ok
+RHODEY: [reluctantly] Oka
