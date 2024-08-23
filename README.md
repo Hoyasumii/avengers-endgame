@@ -2391,3 +2391,4 @@ CLINT BARTON: No. Please, no.
 NATASHA ROMANOFF: It's okay.
 
 CLINT BARTON: Please– [Natasha kicks the wall, falls off the rope, and plummets to the ground.] NO!!!
+
