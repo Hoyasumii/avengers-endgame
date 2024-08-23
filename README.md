@@ -226,4 +226,4 @@ STEVE ROGERS: Let's go get this son of a bitch.
 
 [Title Screen: Avengers: Endgame]
 
-[Cut to a shot of everyone 
+[Cut to a shot of everyone e
