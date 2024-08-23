@@ -2676,4 +2676,4 @@ CLINT BARTON: What?!
 
 GAMORA (2014): Stop.
 
-[Gamora (20
+[Gamora (201
