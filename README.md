@@ -1578,4 +1578,4 @@ RUMLOW (2012): Hey, Cap.
 
 STEVE ROGERS: Rumlow. [everyone starts getting suspicious and has their guard up] I just got a call from the Secretary. I'm gonna be running point on the scepter.
 
-SITWELL (2012): Sir? I don't 
+SITWELL (2012): Sir? I don't u
