@@ -2212,4 +2212,4 @@ HOWARD STARK: Thanks. Hold this, will you?
 
 TONY STARK: Yeah, sure. How far along is she?
 
-HOWARD STARK: I don't know– Uh– She's at the point
+HOWARD STARK: I don't know– Uh– She's at the point 
