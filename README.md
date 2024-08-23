@@ -1526,4 +1526,4 @@ SCOTT LANG: Who are these guys?
 
 TONY STARK: They are SHIELD...Well, actually Hydra. But, we didn't know that yet.
 
-SCOTT LANG: Seriously, you didn't? I mean...
+SCOTT LANG: Seriously, you didn't? I mean...t
