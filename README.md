@@ -2426,4 +2426,4 @@ CLINT BARTON: It can't be undone. It can't.
 
 THOR: I'm sorry. No offense, but you're a very earthly being. Okay? We're talking about space magic. And "can't" seems very definitive don't you think?
 
-CLINT BARTON: (to Thor) Yeah, look, I know that I'm way outside my paygrade here. But she still isn't her
+CLINT BARTON: (to Thor) Yeah, look, I know that I'm way outside my paygrade here. But she still isn't here
