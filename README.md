@@ -1972,4 +1972,4 @@ THANOS (Memory): I used the stones to destroy the stones. It nearly killed me. B
 
 [Memory pauses.]
 
-GAMORA (2014): What did yo
+GAMORA (2014): What did you
