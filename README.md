@@ -2592,4 +2592,4 @@ THANOS (2014): The arrogant never do.
 
 [Thanos then sits down]
 
-THANOS (2014): Go. Find the stones. Bring them t
+THANOS (2014): Go. Find the stones. Bring them to
