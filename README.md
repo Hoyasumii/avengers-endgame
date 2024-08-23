@@ -2476,4 +2476,4 @@ RHODEY: Cheez Whiz?
 
 THOR: Lightning.
 
-TONY STARK: Yea
+TONY STARK: Yeah
