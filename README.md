@@ -298,4 +298,4 @@ ROCKET: What... What did you do?
 
 THOR: I went for the head.
 
-[Thor slowly walks ou
+[Thor slowly walks out
