@@ -416,4 +416,4 @@ CAROL DANVERS: [To Rhodey] Good luck. [cuts off call]
 
 [Except for Rhodes. Nat sighs exhausted, and sits down, as she notices Rhodes still online in the call.]
 
-NATASHA ROMANOFF: 
+NATASHA ROMANOFF: W
