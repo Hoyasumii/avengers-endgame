@@ -2869,4 +2869,4 @@ PEPPER POTTS: Uh, is anyone else seeing this?
 
 [Doctor Strange looks at the broken dam and uses his magic to stop the water from flooding the battlefield. Meanwhile, Peter is still battling the Chitauri.]
 
-PETER PARKER: I got t
+PETER PARKER: I got th
