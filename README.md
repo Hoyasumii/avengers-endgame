@@ -626,4 +626,4 @@ NATASHA ROMANOFF: No one blamed you, Bruce.
 
 BRUCE BANNER: I did. For years, I've been treating the Hulk like he's some kind of disease, something to get rid of. But then I started looking at him as the cure. Eighteen months in a gamma lab. I put the brains and the brawn together. And now look at me. Best of both worlds...
 
-[Three children behind 
+[Three children behind B
