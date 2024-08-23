@@ -1738,4 +1738,4 @@ THE ANCIENT ONE (2012): I can't risk this Reality on a promise. It is the duty o
 
 BRUCE BANNER: Then, why the hell did Strange give it away?
 
-THE ANCIENT ONE (2012): [Surpri
+THE ANCIENT ONE (2012): [Surpris
