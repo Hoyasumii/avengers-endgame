@@ -3014,3 +3014,4 @@ THOR: I'm not sure. For the first time in a thousand years, I– I have no path.
 [Camera pans to the Benatar parked on the cliff]
 
 ROCKET: Move it or lose it, hairbag.
+
