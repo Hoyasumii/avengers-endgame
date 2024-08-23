@@ -666,4 +666,4 @@ SCOTT LANG: Just take the goddamn phone. [Maybe next time, Scott.]
 
 GIRL: Thank you, Mr. Hulk.
 
-BRUCE BANNER: No, it's great kids. Thank you very much. [Same time with kids] Hulk ou
+BRUCE BANNER: No, it's great kids. Thank you very much. [Same time with kids] Hulk out
