@@ -310,4 +310,4 @@ YEARS
 
 LATER
 
-[We see shots of New York City, 
+[We see shots of New York City, s
