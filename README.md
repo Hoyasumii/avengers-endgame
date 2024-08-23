@@ -2583,3 +2583,4 @@ NEBULA (2014): Yes, Father.
 THANOS (2014): So, this is the future. Well done.
 
 [Nebula (2014) takes off the orange plate on her head and throws it away]
+
