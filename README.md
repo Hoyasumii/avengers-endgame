@@ -2592,4 +2592,4 @@ THANOS (2014): The arrogant never do.
 
 [Thanos then sits down]
 
-THANOS (2014): Go. 
+THANOS (2014): Go. F
