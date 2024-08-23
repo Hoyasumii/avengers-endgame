@@ -3088,3 +3088,4 @@ BUCKY BARNES: How can I? You're taking all the stupid with you.
 [They both hug each other]
 
 BUCKY BARNES: Gonna miss you, Buddy.
+
