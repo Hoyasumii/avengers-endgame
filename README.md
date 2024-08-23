@@ -1364,4 +1364,4 @@ ROCKET: Come here. Right here.
 
 [Rocket slaps Thor in the face.]
 
-ROCKET: You think you're the only one who lost people? What do you think we're doing here? I lost the only fa
+ROCKET: You think you're the only one who lost people? What do you think we're doing here? I lost the only fam
