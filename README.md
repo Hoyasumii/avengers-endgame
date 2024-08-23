@@ -1534,4 +1534,4 @@ STEVE ROGERS (2012): On my way down to coordinate search and rescue.
 
 LOKI (2012): [Transforming into Steve for a second in imitation] On my way down to coordinate search and rescue! [Transforming back] I mean, honestly! How do you think you'll be...
 
-THOR (2012): [Slapping on a device on Loki's mouth to make him quiet] Sh
+THOR (2012): [Slapping on a device on Loki's mouth to make him quiet] Shu
