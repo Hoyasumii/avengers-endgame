@@ -3175,4 +3175,4 @@ Sam Wilson: [seeing elderly Steve's wedding ring] You wanna tell me about her?
 
 [In the final scenes, Steve has time traveled back to the 1940s to be with Peggy Carter. They are seen dancing to "It's Been a Long, Long Time" in their home, and they end with a kiss.]
 
-[In the very end of the film, the sound of hammering metal is heard in the background. A dedication to Tony Stark and a callback to the first I
+[In the very end of the film, the sound of hammering metal is heard in the background. A dedication to Tony Stark and a callback to the first Ir
