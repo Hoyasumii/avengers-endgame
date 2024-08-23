@@ -3139,4 +3139,4 @@ Sam Wilson: Cap?
 
 [Old Steve looks over to Sam]
 
-Sam Wilson: So did something go wro
+Sam Wilson: So did something go wron
