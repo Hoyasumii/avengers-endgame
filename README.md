@@ -104,4 +104,4 @@ TONY STARK: Honestly, until this exact second, I literaly thought you were a Bui
 
 ROCKET: Maybe I am.
 
-STEVE ROGERS: We've been hunting Thanos for three weeks now. Deep Space scans, and satellites, and we got nothing. Tony, you foug
+STEVE ROGERS: We've been hunting Thanos for three weeks now. Deep Space scans, and satellites, and we got nothing. Tony, you fough
