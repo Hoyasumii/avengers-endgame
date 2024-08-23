@@ -1276,4 +1276,4 @@ NATASHA ROMANOFF: Guys, if you pick the right year, there are three stones in Ne
 
 BRUCE BANNER: [Sitting up in surprise] Shut the front door.
 
-[Sh
+[Sho
