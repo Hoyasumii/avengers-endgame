@@ -2744,4 +2744,4 @@ WONG: What, you wanted more?
 
 STEVE ROGERS: AVENGERS! [he summons Mjolnir] –assemble.
 
-[Thor makes a battle cry, as does Black Panther and the heroes charge, the Avengers theme swelling with their stride. Thanos raises his sword towards them, commanding his army to charge as well. Then both sides collide. The camera switc
+[Thor makes a battle cry, as does Black Panther and the heroes charge, the Avengers theme swelling with their stride. Thanos raises his sword towards them, commanding his army to charge as well. Then both sides collide. The camera switch
