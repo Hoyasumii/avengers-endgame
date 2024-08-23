@@ -2050,4 +2050,4 @@ STEVE ROGERS: Are there any other options with the Tesseract?
 
 SCOTT LANG: No, no, no. There's no other options. There's no do-overs. We're not going anywhere else. We have one particle left. Each. That's it, alright? We use that– Bye, bye. You're not going home.
 
-STEVE ROGERS: Yeah, well if we don't try, then no one else is goi
+STEVE ROGERS: Yeah, well if we don't try, then no one else is goin
