@@ -1649,3 +1649,4 @@ THOR (2012): Stark!
 [Stark 2012 falls down to the ground]
 
 ALEXANDER PIERCE (2012): Look, he's convulsing. Give him air! Medic!
+
