@@ -1118,4 +1118,4 @@ SCOTT LANG: No, you're being very Hulky.
 
 BRUCE BANNER: I'm being careful.
 
-SCOTT LANG: [Ho
+SCOTT LANG: [Hol
