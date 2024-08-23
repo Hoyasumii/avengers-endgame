@@ -3173,3 +3173,4 @@ Sam Wilson: [seeing elderly Steve's wedding ring] You wanna tell me about her?
 
 (OLD) STEVE ROGERS: [smiling] No. No, I don't think I will. [Last lines]
 
+[
