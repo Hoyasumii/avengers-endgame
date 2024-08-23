@@ -2020,4 +2020,4 @@ TONY STARK: Cap–
 
 [He turns around to see Tony and Scott sitting in a broken car.]
 
-TONY STARK: Sorry, buddy
+TONY STARK: Sorry, buddy.
