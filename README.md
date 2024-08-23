@@ -576,4 +576,4 @@ TONY STARK: I'm gonna stop you right there, Scott. Are you seriously telling me 
 
 SCOTT LANG: [embarrassed] No.
 
-TONY STARK: Good. You had me worried there. 'Cause that'd be horse shit. That's not how 
+TONY STARK: Good. You had me worried there. 'Cause that'd be horse shit. That's not how q
