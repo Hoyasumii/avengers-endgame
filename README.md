@@ -486,4 +486,4 @@ SCOTT LANG: Yeah. I'm fine.
 
 [He struggles to ask about something. He finally blurts it out.]
 
-SCOTT LANG: Have you ever studied Quantum P
+SCOTT LANG: Have you ever studied Quantum Ph
