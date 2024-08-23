@@ -2740,4 +2740,4 @@ DOCTOR STRANGE: Is that everyone?
 
 WONG: What, you wanted more?
 
-[Giant-Man emerges from the rubble of the Avengers faci
+[Giant-Man emerges from the rubble of the Avengers facil
