@@ -896,4 +896,4 @@ TONY STARK: Why? He made it for you. [referring to Howard Stark] Plus, honestly 
 
 [Steve fits his arm into the shield.]
 
-STEVE ROGERS: Thank 
+STEVE ROGERS: Thank y
