@@ -2853,4 +2853,4 @@ PETER PARKER: I got it!
 
 PETER PARKER: Activate Instant Kill!
 
-[The Robot
+[The Roboti
