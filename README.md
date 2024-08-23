@@ -2897,4 +2897,4 @@ STEVE ROGERS: Danvers, we need an assist here.
 
 PETER PARKER: Hi. I'm– Peter Parker.
 
-CAROL DANVERS: Hey, Peter Parker. You got somethi
+CAROL DANVERS: Hey, Peter Parker. You got somethin
