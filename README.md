@@ -1598,4 +1598,4 @@ TONY STARK: Thumbelina, do you copy? I've got eyes on the prize. It's go-time.
 
 SCOTT LANG: Bombs away. [Sliding down to Tony's Arc Reactor] Is... is that Axe body spray?
 
-TONY STARK: Yeah, I had a can jus
+TONY STARK: Yeah, I had a can just
