@@ -2825,4 +2825,4 @@ SCOTT LANG: It's– it's dead.
 
 THE WASP: What?
 
-SCOTT LANG: It's de
+SCOTT LANG: It's dea
