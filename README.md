@@ -2392,4 +2392,4 @@ NATASHA ROMANOFF: It's okay.
 
 CLINT BARTON: Please– [Natasha kicks the wall, falls off the rope, and plummets to the ground.] NO!!!
 
-[The shot shows her body on the ground, dead. A boom in the sky sends Clint in a pool of water with the Soul Stone in his hand. He hits the ground out of sadness. His Quantum Suit activates and he shrinks back to the present da
+[The shot shows her body on the ground, dead. A boom in the sky sends Clint in a pool of water with the Soul Stone in his hand. He hits the ground out of sadness. His Quantum Suit activates and he shrinks back to the present day
