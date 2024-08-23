@@ -2500,4 +2500,4 @@ BRUCE BANNER: Got it.
 
 [Everyone gets ready and suits up]
 
-TONY STARK: F.R.I.D.A.Y., do me a favor and activate B
+TONY STARK: F.R.I.D.A.Y., do me a favor and activate Ba
