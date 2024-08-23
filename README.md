@@ -1976,4 +1976,4 @@ GAMORA (2014): What did you do to them?
 
 THANOS (2014): Nothing. Yet. They're not trying to stop something I'm going to do in our time. They're trying to undo something I've already done in theirs.
 
-GAMORA (2014): The stones.
+GAMORA (2014): The stones..
