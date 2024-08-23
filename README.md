@@ -668,4 +668,4 @@ GIRL: Thank you, Mr. Hulk.
 
 BRUCE BANNER: No, it's great kids. Thank you very much. [Same time with kids] Hulk out!
 
-STEVE ROGERS
+STEVE ROGERS:
