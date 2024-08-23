@@ -848,4 +848,4 @@ BRUCE BANNER: He'll grow.
 
 STEVE ROGERS: Bring Scott back!
 
-BRUCE BANNER: [mo
+BRUCE BANNER: [mot
