@@ -1406,4 +1406,4 @@ RHODEY: Let's get it done. Yes, sir.
 
 NATASHA ROMANOFF: [Walking with Clint back into the ship] See you back.
 
-RHODEY: You guys watch each o
+RHODEY: You guys watch each ot
