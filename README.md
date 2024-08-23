@@ -2524,4 +2524,4 @@ STEVE ROGERS: Bruce!
 
 TONY STARK: Don't move him.
 
-BRUCE ROGERS: [Bruce holds onto S
+BRUCE ROGERS: [Bruce holds onto St
