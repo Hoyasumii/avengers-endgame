@@ -1883,3 +1883,4 @@ FRIGGA (2013): No, son. You don't. You're here to repair your future, not mine.
 THOR: But this is about your future.
 
 FRIGGA (2013): It's none of my business. [does she know?]
+
