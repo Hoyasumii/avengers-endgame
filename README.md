@@ -1474,4 +1474,4 @@ NEBULA (2014): I swear...I will make you proud.
 
 [Nebula (2014) is suddenly in pain and opens up future Nebula's memories.]
 
-RHODEY (Memory): We just, wait around for this Quill guy to show up, and then he leads us to the Power Sto
+RHODEY (Memory): We just, wait around for this Quill guy to show up, and then he leads us to the Power Ston
