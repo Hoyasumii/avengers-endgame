@@ -2300,4 +2300,4 @@ CLINT BARTON: Wow– Under different circumstances, this would be totally awesom
 
 NATASHA ROMANOFF: I bet the raccoon didn't have to climb a mountain. CLINT BARTON: Technically, he's not a raccoon, you know.
 
-NATASHA ROMANOFF
+NATASHA ROMANOFF:
