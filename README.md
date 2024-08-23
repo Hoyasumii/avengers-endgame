@@ -1698,4 +1698,4 @@ STEVE ROGERS: [Puts the case down] I'm not Loki. And I don't wanna hurt you.
 
 STEVE ROGERS (2012): I can do this all day.
 
-STEVE ROGERS: [Standing up]
+STEVE ROGERS: [Standing up] 
