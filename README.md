@@ -2686,4 +2686,4 @@ NEBULA: You don't have to do this.
 
 NEBULA (2014): I am this.
 
-GAMORA (2014): No, you're n
+GAMORA (2014): No, you're no
