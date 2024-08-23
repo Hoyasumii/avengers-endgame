@@ -1782,4 +1782,4 @@ THANOS (2014): Search the duplicate's memories for Infinity Stones.
 
 [Memory of the meeting with all the Avengers starts playing]
 
-BRUCE BA
+BRUCE BAN
