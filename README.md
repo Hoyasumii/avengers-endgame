@@ -2863,4 +2863,4 @@ CORVUS GLAIVE: But sire, our troops!
 
 THANOS (2014): Just do it!
 
-[The spaceship cannons appear and start to fire at the heroes. It flings Maximoff away. Wong makes a shield and holds it up. The others do the same. Suddenly one of the cannons hit a dam
+[The spaceship cannons appear and start to fire at the heroes. It flings Maximoff away. Wong makes a shield and holds it up. The others do the same. Suddenly one of the cannons hit a dam.
