@@ -1546,4 +1546,4 @@ SCOTT LANG: [Lying down on Tony's shoulder] Alright. Flick me.
 
 HULK (2012): Move.
 
-THOR (2012): W
+THOR (2012): Wh
