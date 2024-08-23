@@ -1278,4 +1278,4 @@ BRUCE BANNER: [Sitting up in surprise] Shut the front door.
 
 [Shot cuts to the holograms displaying the different location, the Soul and Power Stones in space in 2014. the Reality Stone in Asgard, 2013; and the Space, Mind, and Time Stones in New York City, 2012]
 
-STEVE R
+STEVE RO
