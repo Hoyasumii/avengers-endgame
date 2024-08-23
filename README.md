@@ -338,4 +338,4 @@ Scott Lang: Hope?
 
 (Inside a security office, a security guard (Ken Jeong) reading a book as he looks upon his security screen, seeing something going on in one of the storage facilities. In the cameras, it shows Lang in his casual clothing, shouting, waving a sign with the word "HELP" written on it.)
 
-(Outside the facility, he pulls out a pushcart and looks back seeing the guard giving a stern look from far. He walks around until reaching his hometown, finding a post filled with MISSING posters, abandoned houses, a wrecked car, noth
+(Outside the facility, he pulls out a pushcart and looks back seeing the guard giving a stern look from far. He walks around until reaching his hometown, finding a post filled with MISSING posters, abandoned houses, a wrecked car, nothi
