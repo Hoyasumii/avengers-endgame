@@ -2586,4 +2586,4 @@ THANOS (2014): So, this is the future. Well done.
 
 NEBULA (2014): Thank you, Father. They suspected nothing.
 
-[Thanos (2014) plants his double-bladed sw
+[Thanos (2014) plants his double-bladed swo
