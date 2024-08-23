@@ -1924,4 +1924,4 @@ FRIGGA (2013): [whispers] Goodbye.
 
 RHODEY: So he's an idiot?
 
-NEBULA: 
+NEBULA: Y
