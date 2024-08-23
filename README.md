@@ -666,4 +666,4 @@ SCOTT LANG: Just take the goddamn phone. [Maybe next time, Scott.]
 
 GIRL: Thank you, Mr. Hulk.
 
-BRUCE BANNER:
+BRUCE BANNER: 
