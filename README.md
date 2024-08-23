@@ -436,4 +436,4 @@ RHODEY: [reluctantly] Okay. [then Rhodes cuts off his]
 
 [Nat starts to cry as she tries to hold back her tears miserably.]
 
-STEVE ROGERS: You know I'd offer to cook you dinner but you seem p
+STEVE ROGERS: You know I'd offer to cook you dinner but you seem pr
