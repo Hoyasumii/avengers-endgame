@@ -1606,4 +1606,4 @@ ALEXANDER PIERCE (2012): May I ask you where you're going?
 
 THOR (2012): To lunch and then Asgard. I'm sorry, you are?
 
-TONY STARK (2012): Alexander Pierce. He's the man, one of the folks behind Nick Fur
+TONY STARK (2012): Alexander Pierce. He's the man, one of the folks behind Nick Fury
