@@ -3165,4 +3165,4 @@ Sam Wilson: Like it's someone else's.
 
 [Sam tries to hold back tears]
 
-Sam Wilson: Thank you. I'
+Sam Wilson: Thank you. I'l
