@@ -1824,4 +1824,4 @@ FRIGGA (2013): What are you wearing?
 
 THOR: I always wear this. This is one of my favorites.
 
-[Frigga puts her hand on Thor's face and takes a g
+[Frigga puts her hand on Thor's face and takes a go
