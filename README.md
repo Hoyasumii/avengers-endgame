@@ -1078,4 +1078,4 @@ AKIHIKO: 待て! 助けてくれ! お前に何でもやる! 何が欲しい? (Ro
 
 RONIN: [Raising his katana, in English] What I want... You can't give me.
 
-[He thrusts the blade dow
+[He thrusts the blade down
