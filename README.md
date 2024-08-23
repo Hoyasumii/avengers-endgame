@@ -260,4 +260,4 @@ NEBULA: And that's enough.
 
 [Cut to a shot of a scenic lush tropical fauna. It surrounds a shed on a farm. A scarecrow made of Thanos' armour is seen before we cut to a shot focusing on the burnt Infinity Gauntlet on Thanos' arm. He's walking among his crops, harvesting fruit, and putting them in a sack. He walks over to the shed, with a dragging quality to his legs, like it pains him to walk, presumably his living quarters, and tries to sit down, and we see his full face. His whole left side is burnt black with blisters; He looks ridiculously pathetic compared to when we saw him last.]
 
-[Suddenly, Carol Danvers flies through the roof, knocking Thanos down, a
+[Suddenly, Carol Danvers flies through the roof, knocking Thanos down, an
