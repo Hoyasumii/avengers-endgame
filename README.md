@@ -2740,4 +2740,4 @@ DOCTOR STRANGE: Is that everyone?
 
 WONG: What, you wanted more?
 
-[Giant-Man emerg
+[Giant-Man emerge
