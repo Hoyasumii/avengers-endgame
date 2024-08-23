@@ -1102,4 +1102,4 @@ NATASHA: I'm sorry I couldn't give it to you sooner.
 
 [We cut to the Avenger's Compound, where we see Thor in a hoodie, drinking a beer and walking through the compound's Testing Chamber. Tony is also there, walking in from behind Thor.]
 
-TONY STARK: [To Thor] Drifting left. On the side there, Lebowski. [To Rocket, who's working on something underneath a glass platform] Ratche
+TONY STARK: [To Thor] Drifting left. On the side there, Lebowski. [To Rocket, who's working on something underneath a glass platform] Ratchet
