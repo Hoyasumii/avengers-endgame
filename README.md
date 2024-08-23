@@ -2428,4 +2428,4 @@ THOR: I'm sorry. No offense, but you're a very earthly being. Okay? We're talkin
 
 CLINT BARTON: (to Thor) Yeah, look, I know that I'm way outside my paygrade here. But she still isn't here, is she?
 
-THOR: No, that's
+THOR: No, that's 
