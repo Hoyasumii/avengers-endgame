@@ -1900,4 +1900,4 @@ FRIGGA (2013): [whispers] Goodbye.
 
 ROCKET: Three... two...
 
-THOR: No, wai
+THOR: No, wait
