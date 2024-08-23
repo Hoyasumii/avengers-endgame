@@ -1920,4 +1920,4 @@ THOR: Goodbye, Mom.
 
 FRIGGA (2013): [whispers] Goodbye.
 
-[Scene cuts t
+[Scene cuts to
