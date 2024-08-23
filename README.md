@@ -1530,4 +1530,4 @@ SCOTT LANG: Seriously, you didn't? I mean...they look like bad guys.
 
 TONY STARK: You're small, but you're talking loud.
 
-STEVE ROGERS (2012): On my way down to c
+STEVE ROGERS (2012): On my way down to co
