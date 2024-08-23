@@ -1510,4 +1510,4 @@ SCOTT LANG: I think you look great, Cap. As far as I'm concerned, that's America
 
 NATASHA ROMANOFF (2012): Who gets the, uh, magic wand?
 
-TONY STARK (2012): STRIKE team's
+TONY STARK (2012): STRIKE team's 
