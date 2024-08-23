@@ -738,4 +738,4 @@ TONY STARK: [Silently] Wow. [Turns off the lamp] 3000. That's crazy. [Closed the
 
 [Cut to the living room where Pepper is reading a book sitting on the couch. Tony paces in front of the fireplace.]
 
-TONY STARK: Not that it's a competition, but she loves me 3000. You were somewhere on the low 6 to 900 ra
+TONY STARK: Not that it's a competition, but she loves me 3000. You were somewhere on the low 6 to 900 ran
