@@ -440,4 +440,4 @@ STEVE ROGERS: You know I'd offer to cook you dinner but you seem pretty miserabl
 
 [Out of nowhere, Roger slumps over a bookshelf, in the same mood as he is in the therapy session, as Nat wipes off the tears off her face.]
 
-NATASHA ROMANOFF: You here to do you
+NATASHA ROMANOFF: You here to do your
