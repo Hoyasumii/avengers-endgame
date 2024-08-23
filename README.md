@@ -2522,4 +2522,4 @@ BRUCE BANNER: I'm okay. I'm okay.
 
 STEVE ROGERS: Bruce!
 
-TONY STARK: Don't move 
+TONY STARK: Don't move h
