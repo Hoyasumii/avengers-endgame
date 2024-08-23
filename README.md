@@ -2995,4 +2995,4 @@ VALKYRIE: Thor. Your people need a king.
 
 THOR: No, they already have one.
 
-VALKYRIE: That's funny. Y
+VALKYRIE: That's funny. Yo
