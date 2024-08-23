@@ -2943,4 +2943,4 @@ F.R.I.D.A.Y.: Life functions critical.
 
 [Tony smiles with tears in his eyes.]
 
-PEPPER POTTS: Tony. Look at me. [She makes sure Tony gets a long look at her smiling face
+PEPPER POTTS: Tony. Look at me. [She makes sure Tony gets a long look at her smiling face]
