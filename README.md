@@ -208,4 +208,4 @@ STEVE ROGERS: Yeah, just like that.
 
 [Steve and Carol share a knowing look.]
 
-NATASHA ROMANOFF: Even if there's a small chan
+NATASHA ROMANOFF: Even if there's a small chanc
