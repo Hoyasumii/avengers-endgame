@@ -1980,4 +1980,4 @@ GAMORA (2014): The stones...
 
 THANOS (2014): I found them all. I won. Tipped the cosmic scales to balance.
 
-[Th
+[Tha
