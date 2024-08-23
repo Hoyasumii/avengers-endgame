@@ -592,4 +592,4 @@ MORGAN STARK: Mommy told me to come and save you.
 
 TONY STARK: Good job. I'm saved. [Turning to face Cap, Nat and Scott.] I wish you'd come here to ask me something else. Anything else. Honestly, I... I missed you guys, it was... Oh, and table's set for six.
 
-STEVE ROGERS: Tony, I get it. And I'm happy for you, I really am. But t
+STEVE ROGERS: Tony, I get it. And I'm happy for you, I really am. But th
