@@ -2642,4 +2642,4 @@ THOR: Good. Just as long we are all in agreement. [Thunder cracks as Thor stretc
 
 [The Big Three walk over to confront Thanos face to face]
 
-THANOS (2014): You could not live with your own failure. And where d
+THANOS (2014): You could not live with your own failure. And where di
