@@ -1446,4 +1446,4 @@ GAMORA (2014): He's found an Infinity Stone.
 
 NEBULA (2014): Where?
 
-GAMORA (2014): On a planet called Morag
+GAMORA (2014): On a planet called Morag.
