@@ -2818,3 +2818,4 @@ DOCTOR STRANGE: If I tell you what happens, it won't happen.
 TONY STARK: You better be right.
 
 [Cut to Scott and Hope entering a small hole in the van's window, getting to the drive seat, regrowing and trying to activate the Quantum Tunnel.]
+
