@@ -854,4 +854,4 @@ NATASHA ROMANOFF: Oh my god. [rapidly walk near to the generator]
 
 BRUCE BANNER: And... Kill it!
 
-[Nat pulls 
+[Nat pulls d
