@@ -256,4 +256,4 @@ STEVE ROGERS: Cause I don't know what I'm going to do if it doesn't.
 
 CAROL DANVERS: No satellites, no ships, no armies, no ground defenses of any kind. It's just him.
 
-NEBULA: And that's enoug
+NEBULA: And that's enough
