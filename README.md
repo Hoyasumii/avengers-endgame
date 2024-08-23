@@ -2929,4 +2929,4 @@ PETER PARKER: I'm sorry– Tony–
 
 PEPPER POTTS: Hey.
 
-[Tony is barely able to move his head, but manage
+[Tony is barely able to move his head, but manages
