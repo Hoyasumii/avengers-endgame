@@ -54,4 +54,4 @@ TONY STARK: We're tied up. Feel the tension? It's fun.
 
 TONY STARK: That was terrible. Now you have a chance to win. [Nebula flicks the paper football towards Tony]
 
-TONY STARK: And... you've won. Congratulations. [Tony reaches his hand out to shake Nebula's h
+TONY STARK: And... you've won. Congratulations. [Tony reaches his hand out to shake Nebula's ha
