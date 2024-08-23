@@ -1860,4 +1860,4 @@ THOR: I guess, yeah.
 
 FRIGGA (2013): Idiot? No. A failure? Absolutely.
 
-THOR: That's a li
+THOR: That's a lit
