@@ -768,4 +768,4 @@ TONY STARK: No, I can't help everybody.
 
 PEPPER POTTS: It sort a seems like you can.
 
-TONY STARK: Not if I sto
+TONY STARK: Not if I stop
