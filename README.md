@@ -634,4 +634,4 @@ BRUCE BANNER: Yes?
 
 GIRL: Can we get a photo?
 
-BRUCE BANNER: 100%, little person. Come on, step up. [Holding out the phone to Sc
+BRUCE BANNER: 100%, little person. Come on, step up. [Holding out the phone to Sco
