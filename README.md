@@ -1042,4 +1042,4 @@ THOR: So, whatever it is that you're offering, we're not into it, don't care, co
 
 BRUCE BANNER: [from offscreen] We need you, pal.
 
-[Thor shakes his head and ignores Bruce.
+[Thor shakes his head and ignores Bruce.]
