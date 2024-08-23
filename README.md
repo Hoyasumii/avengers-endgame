@@ -270,4 +270,4 @@ STEVE ROGERS: Where are they?
 
 CAROL DANVERS: Answer the question!
 
-THANOS: Th
+THANOS: The
