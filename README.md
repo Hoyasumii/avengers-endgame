@@ -2714,4 +2714,4 @@ F.R.I.D.A.Y: Boss, wake up!
 
 THOR: I knew it!
 
-[Thano
+[Thanos
