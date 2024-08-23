@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being
+(The screen first panels up to an arrow being 
