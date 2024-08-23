@@ -1536,4 +1536,4 @@ LOKI (2012): [Transforming into Steve for a second in imitation] On my way down 
 
 THOR (2012): [Slapping on a device on Loki's mouth to make him quiet] Shut up.
 
-TONY STARK: All rig
+TONY STARK: All righ
