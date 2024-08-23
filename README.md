@@ -1502,4 +1502,4 @@ TONY STARK (2012): All right, get him on his feet. We can all stand around posin
 
 TONY STARK: Uh, Mr. Rogers. I almost forgot that that suit [A shot of Cap walking around in his 2012 suit] did nothing for your ass.
 
-STEVE ROGERS: No one asked 
+STEVE ROGERS: No one asked y
