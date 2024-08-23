@@ -3177,4 +3177,4 @@ Sam Wilson: [seeing elderly Steve's wedding ring] You wanna tell me about her?
 
 [In the very end of the film, the sound of hammering metal is heard in the background. A dedication to Tony Stark and a callback to the first Iron Man]
 
-[Closing Title: Marvel Stu
+[Closing Title: Marvel Stud
