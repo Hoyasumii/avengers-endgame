@@ -960,4 +960,4 @@ BRUCE BANNER: Thor?
 
 THOR: [He notices Bruce and Rocket standing there. He cracks into joy.] BOYS! Oh my God! Its so to see you! [To Rocket, trying to hug him] Come here, you little rascal! [growling]
 
-ROCKET: No, I'm good. I'm good. That's no
+ROCKET: No, I'm good. I'm good. That's not
