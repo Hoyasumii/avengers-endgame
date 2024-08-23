@@ -2356,4 +2356,4 @@ NATASHA ROMANOFF: For the last five years I've been trying to do one thing: Get 
 
 CLINT BARTON: Oh, don't you get all decent on me now.
 
-NATASHA ROMANOFF: What, you think I wa
+NATASHA ROMANOFF: What, you think I wan
