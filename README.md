@@ -1854,4 +1854,4 @@ FRIGGA (2013): We can talk.
 
 THOR: His head was over there... His body over there... What was the point? I was too late. I was just standing there. Some idiot with an axe.
 
-FRIGGA (2013): You're no idiot. You're here aren't you? Seeking counsel from the wisest person i
+FRIGGA (2013): You're no idiot. You're here aren't you? Seeking counsel from the wisest person in
