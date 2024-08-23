@@ -504,4 +504,4 @@ SCOTT LANG: See, the rules of the Quantum Realm aren't like they are up here. Ev
 
 STEVE ROGERS: Scott, what are you talking about?
 
-SCOTT LANG: What I'm saying is, time works differently in the Quantum Realm. The only problem is right now, we don't have a way to na
+SCOTT LANG: What I'm saying is, time works differently in the Quantum Realm. The only problem is right now, we don't have a way to nav
