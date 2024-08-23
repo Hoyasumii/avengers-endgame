@@ -2981,4 +2981,4 @@ HAPPY: What do you want?
 
 MORGAN STARK: Cheeseburgers.
 
-HAPPY: You know yo
+HAPPY: You know you
