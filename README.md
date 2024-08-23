@@ -1007,3 +1007,4 @@ BRUCE BANNER: Like Thanos.
 [Thor's smile slowly disappears. He puts a shaky hand on Bruce's shoulder and points at him.]
 
 THOR: Don't say that name.
+
