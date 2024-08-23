@@ -568,4 +568,4 @@ TONY STARK: Or screw it up worse than he already has, right?
 
 STEVE ROGERS: I don't believe we would.
 
-TONY STARK: Gotta say, sometimes I miss that giddy optimism. However, high hopes won't help if there's no logical, tangible way for me to safely execute said time heist. I believe the most likely outcome would be our col
+TONY STARK: Gotta say, sometimes I miss that giddy optimism. However, high hopes won't help if there's no logical, tangible way for me to safely execute said time heist. I believe the most likely outcome would be our coll
