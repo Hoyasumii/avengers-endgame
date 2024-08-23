@@ -1358,4 +1358,4 @@ THOR: I can't do this. I can't do this. I shouldn't be here. I shouldn't have co
 
 ROCKET: Come here. [Standing in front of him]
 
-THOR: No, n
+THOR: No, no
