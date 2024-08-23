@@ -1724,4 +1724,4 @@ BRUCE BANNER: With all due respect, I'm not sure the science really supports tha
 
 [The Ancient One creates a projection with a long ray that simulates the flow of time.]
 
-THE ANCIENT ONE (2012): The Infinity Stones create what you experience as the flow of time. Remove one stone and that flow splits. [She flicks the Time Stone project
+THE ANCIENT ONE (2012): The Infinity Stones create what you experience as the flow of time. Remove one stone and that flow splits. [She flicks the Time Stone projecti
