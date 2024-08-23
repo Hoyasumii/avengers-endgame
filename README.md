@@ -70,4 +70,4 @@ TONY STARK: This thing on? [The helmet scans Tony. Tony leans against the wall w
 
 [A bathroom in the Avengers compound. We see Steve Rogers holding a blade, having just shaved off his beard. He sighs and looks into a side mirror. The mirror suddenly starts shaking, slowly at first, and then severely. Cut to the yard in the Avengers Compound, we see Steve Rogers, Natasha Romanoff, Bruce Banner, and James Rhodes walking out looking at something, the Benatar carried by Carol Danvers as she lands the spacecraft. The landing gears deploy as they touch down. The entry hatch opens, and Tony and Nebula walk out, Tony being supported by Nebula. Steve runs to Tony to help him stand up. Tony grips Steve's arm as he joins him.]
 
-TONY STAR
+TONY STARK
