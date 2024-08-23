@@ -944,4 +944,4 @@ BRUCE BANNER: It's that bad.
 
 VALKYRIE: Yeah.
 
-[Cut to Rocke
+[Cut to Rocket
