@@ -1490,4 +1490,4 @@ GAMORA (2014): Her synaptic drive was probably damaged in battle.
 
 THANOS (2014): Shhh... (pointing to Nebula) Bring her to my ship.
 
-[Cut to present Tony Stark flying around Stark Tower in the Mark 85. He scans the interior of the tower, and sees the original Avengers apprehending Loki, the backside of the iconic shot of H
+[Cut to present Tony Stark flying around Stark Tower in the Mark 85. He scans the interior of the tower, and sees the original Avengers apprehending Loki, the backside of the iconic shot of Ha
