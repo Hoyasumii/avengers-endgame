@@ -1416,4 +1416,4 @@ CLINT BARTON: Yeah.
 
 NEBULA: The coordinates for Vormir are laid in. All they have to do is not fall out.
 
-[In the Benatar, Clint and Nat are sitting at the front of the s
+[In the Benatar, Clint and Nat are sitting at the front of the sh
