@@ -424,4 +424,4 @@ NATASHA ROMANOFF: It's probably a rival gang.
 
 RHODEY: Except it isn't. (Nat realizes something.) It's definitely Barton. What he's done here, what he's been doing for the last few years... I mean, the scene that he left... (Nat starts to show signs of sadness as she gradually tears up.) I gotta tell you, there's a part of me that doesn't even want to find him.
 
-(In an abrupt moment of silence, she tries to chew her tears and emotional feeling
+(In an abrupt moment of silence, she tries to chew her tears and emotional feelings
