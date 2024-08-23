@@ -1992,4 +1992,4 @@ NEBULA (Memory): My father is many things. A liar is not one of them.
 
 THANOS (Memory): Ah...Thank you, Daughter. Perhaps I treated you too harshly...
 
-[Thanos gets beheaded in the memory, Gamora (2014) is
+[Thanos gets beheaded in the memory, Gamora (2014) is 
