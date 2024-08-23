@@ -208,4 +208,4 @@ STEVE ROGERS: Yeah, just like that.
 
 [Steve and Carol share a knowing look.]
 
-NATASHA ROMANOFF: Even if there's a small chance that we can undo this... I mean we owe it to everyone who's not in
+NATASHA ROMANOFF: Even if there's a small chance that we can undo this... I mean we owe it to everyone who's not in 
