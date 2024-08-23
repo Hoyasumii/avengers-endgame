@@ -3105,4 +3105,4 @@ STEVE ROGERS: You bet.
 
 BRUCE BANNER: Going quantum. Three, two, one–
 
-[Steve 
+[Steve d
