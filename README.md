@@ -1310,4 +1310,4 @@ STEVE ROGERS: All right, we all have our assignments. Two Stones uptown, one Sto
 
 BRUCE BANNER: I think it's gratuitous, but whatever.
 
-[Present Bruce pretends to smash things in a sa
+[Present Bruce pretends to smash things in a sar
