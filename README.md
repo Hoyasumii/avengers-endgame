@@ -368,4 +368,4 @@ SCOTT LANG: You're so big!
 
 [Both dad and daughter share a hug once more.]
 
-[The camera cuts to a sunset in San Francisco, showing a metal face 
+[The camera cuts to a sunset in San Francisco, showing a metal face w
