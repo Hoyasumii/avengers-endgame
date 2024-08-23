@@ -468,4 +468,4 @@ STEVE ROGERS: I think we both need to get a life.
 
 NATASHA ROMANOFF: [Smiling] You first.
 
-[A camera
+[A camera 
