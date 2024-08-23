@@ -1400,4 +1400,4 @@ NATASHA ROMANOFF: Yeah.
 
 RHODEY: Take that stone and come back. No messing around.
 
-CLINT BARTON: [To Rhodey]
+CLINT BARTON: [To Rhodey] 
