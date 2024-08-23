@@ -2330,4 +2330,4 @@ CLINT BARTON: How's it going? Jesus...Maybe he's making this shit up.
 
 NATASHA ROMANOFF: No. I don't think so.
 
-CLINT BARTON: Why, 'cause he knows your Da
+CLINT BARTON: Why, 'cause he knows your Dad
