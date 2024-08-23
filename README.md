@@ -3043,4 +3043,4 @@ NEBULA: Sounds fair.
 
 QUILL: It's not necessary.
 
-THOR: It's no
+THOR: It's not
