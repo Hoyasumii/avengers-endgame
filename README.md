@@ -2170,4 +2170,4 @@ HOWARD STARK: That way.
 
 TONY STARK: Okay.
 
-HOWARD STARK: Need your br
+HOWARD STARK: Need your bri
