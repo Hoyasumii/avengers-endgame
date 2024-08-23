@@ -1214,4 +1214,4 @@ TONY STARK: Correct.
 
 STEVE ROGERS: Let's start with the Aether. Thor, what do you know?
 
-[We see Thor si
+[We see Thor sit
