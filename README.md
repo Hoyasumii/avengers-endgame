@@ -1718,4 +1718,4 @@ STEVE ROGERS: That is America's ass.
 
 BRUCE BANNER: Please, please!
 
-THE ANCIENT ONE (2012): I'm sorry, I can't help you, Bruce. If 
+THE ANCIENT ONE (2012): I'm sorry, I can't help you, Bruce. If I
