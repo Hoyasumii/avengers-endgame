@@ -1050,4 +1050,4 @@ THOR: [pauses, but doesn't look up then puts the bottle down] What kind?
 
 [SCREEN TITLE: TOKYO]
 
-[After seeing a Quinjet flown to the capital, the scene cuts to a nightclub in the city of Tokyo, as the entertainment still intact, loads of dead bodies of yakuza members are seen as a hooded figure throws a s
+[After seeing a Quinjet flown to the capital, the scene cuts to a nightclub in the city of Tokyo, as the entertainment still intact, loads of dead bodies of yakuza members are seen as a hooded figure throws a sh
