@@ -2326,4 +2326,4 @@ RED SKULL (2014): For one of you. For the other... In order to take the stone, y
 
 [scene cuts to Natasha sitting on a log while Clint watches the Stonekeeper.]
 
-CL
+CLI
