@@ -978,4 +978,4 @@ KORG: Yeah, NoobMaster69 called me a dickhead.
 
 [Thor walks over to Korg, takes his headphones, and speaks into the mic.]
 
-THOR: NoobMaster. Hey, it's Thor again. You know, the God of Thunder? L
+THOR: NoobMaster. Hey, it's Thor again. You know, the God of Thunder? Li
