@@ -986,4 +986,4 @@ THOR: Let me know if he bothers you again, okay?
 
 KORG: Thank you very much. I will.
 
-THOR: So you gu
+THOR: So you guy
