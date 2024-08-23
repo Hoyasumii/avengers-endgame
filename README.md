@@ -2835,4 +2835,4 @@ EBONY MAW (2014): [pointing.] Sire!
 
 [Thanos sees the gauntlet. Clint rushes through Outriders, before finding himself surrounded. He is saved by Black Panther.]
 
-T'CHALLA: Clint! G
+T'CHALLA: Clint! Gi
