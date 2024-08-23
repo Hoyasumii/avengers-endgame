@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being nocked into a bow. The archer behind firmly grips it tight as it
+(The screen first panels up to an arrow being nocked into a bow. The archer behind firmly grips it tight as it 
