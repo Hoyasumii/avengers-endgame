@@ -2158,4 +2158,4 @@ HOWARD STARK: Shake it, don't pull it.
 
 TONY STARK: Yeah–
 
-HOWARD STARK: You look a little 
+HOWARD STARK: You look a little g
