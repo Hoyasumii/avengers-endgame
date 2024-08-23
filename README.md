@@ -2748,4 +2748,4 @@ STEVE ROGERS: AVENGERS! [he summons Mjolnir] –assemble.
 
 [Cuts to Steve and Thor fighting. Steve takes Stormbreaker but Thor flies to him and passes Mjolnir]
 
-THOR: No, no, give 
+THOR: No, no, give m
