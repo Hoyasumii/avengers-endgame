@@ -1,1 +1,1 @@
-(The screen first panels up to an arrow being nocked into a bow. Th
+(The screen first panels up to an arrow being nocked into a bow. The
