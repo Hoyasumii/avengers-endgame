@@ -18,4 +18,4 @@ LILA BARTON: Who wants mayo on a hotdog?
 
 CLINT BARTON: Probably your brothers.
 
-[Clint looks
+[Clint looks 
