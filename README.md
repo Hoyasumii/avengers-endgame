@@ -452,4 +452,4 @@ NATASHA ROMANOFF: In the Hudson?
 
 STEVE ROGERS: There's fewer ships, cleaner water.
 
-NATASHA ROMANOFF: You know, if you're about to tell me to look on the bright side. Um... I'm about you to hit you in the head with a peanut butter sandwich. [jokingly 
+NATASHA ROMANOFF: You know, if you're about to tell me to look on the bright side. Um... I'm about you to hit you in the head with a peanut butter sandwich. [jokingly s
