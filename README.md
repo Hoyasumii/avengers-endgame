@@ -3041,4 +3041,4 @@ NEBULA: Sounds fair.
 
 [Quill looks around]
 
-QUILL: It's no
+QUILL: It's not
