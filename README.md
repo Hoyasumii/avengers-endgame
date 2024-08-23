@@ -2210,4 +2210,4 @@ TONY STARK: Congratulations.
 
 HOWARD STARK: Thanks. Hold this, will you?
 
-TONY STARK: Yeah, sure. Ho
+TONY STARK: Yeah, sure. How
