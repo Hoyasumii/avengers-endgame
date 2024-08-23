@@ -1326,4 +1326,4 @@ BRUCE BANNER: That, actually.
 
 THE ANCIENT ONE (2012): Ah! I'm afraid not.
 
-BRUCE BANNER: Sorry, but I w
+BRUCE BANNER: Sorry, but I wa
