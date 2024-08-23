@@ -314,4 +314,4 @@ LATER
 
 [Cut to an abandoned cafe, with a poster on the wall labeled "WHERE DO WE GO, NOW THAT THEY'RE GONE?". A therapy session is taking place with Steve Rogers and seven other people.]
 
-JOE RUSSO: So I, uh... Went on a date the other day. It's the first time in five years, you know? I'm sitting there at dinner... I didn't even know what to talk abo
+JOE RUSSO: So I, uh... Went on a date the other day. It's the first time in five years, you know? I'm sitting there at dinner... I didn't even know what to talk abou
