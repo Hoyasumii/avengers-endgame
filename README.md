@@ -396,4 +396,4 @@ CAROL DANVERS: Not likely.
 
 ROCKET: What, you gonna get another haircut?
 
-CAROL DANVERS: [irritated] Listen fur-face, I'm covering a lot of territory. The things that are happening on Earth, are happening everywhere, on
+CAROL DANVERS: [irritated] Listen fur-face, I'm covering a lot of territory. The things that are happening on Earth, are happening everywhere, on 
