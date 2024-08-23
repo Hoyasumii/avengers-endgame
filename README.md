@@ -690,4 +690,4 @@ TONY STARK: Look at a mod inspiration, let me see what check out. So, recommend 
 
 F.R.I.D.A.Y: Processing...
 
-TONY STARK: Giv
+TONY STARK: Give
