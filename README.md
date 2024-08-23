@@ -484,4 +484,4 @@ STEVE ROGERS: Scott. Are you okay?
 
 SCOTT LANG: Yeah. I'm fine.
 
-[He strugg
+[He struggl
