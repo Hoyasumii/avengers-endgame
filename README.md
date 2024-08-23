@@ -1008,4 +1008,4 @@ BRUCE BANNER: Like Thanos.
 
 THOR: Don't say that name.
 
-[Korg sta
+[Korg stan
