@@ -2674,4 +2674,4 @@ CLINT BARTON: What?!
 
 [Clint tries to get up but Nebula (2014) steps her foot down on him an points her gun at him]
 
-GAMORA (2014)
+GAMORA (2014):
