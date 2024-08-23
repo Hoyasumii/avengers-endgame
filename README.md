@@ -2628,4 +2628,4 @@ TONY STARK: What's he been doing?
 
 THOR: Absolutely nothing.
 
-STEVE ROGERS: Whe
+STEVE ROGERS: Wher
