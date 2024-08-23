@@ -1840,4 +1840,4 @@ THOR: I didn't say I'm from the future.
 
 FRIGGA (2013): I was raised by witches, boy. I see with more than eyes, and you know that.
 
-[Thor attempts to hold
+[Thor attempts to hold 
