@@ -2795,4 +2795,4 @@ TONY STARK: No way to get them back. Thanos destroyed the quantum tunnel.
 
 SCOTT LANG: Hold on! [Scott shrinks to normal size and pulls out a remote.] That wasn't our only time machine.
 
-[Scott presses the button, which activates Luis's van's Horn with the song La Cucaracha, which is heard from afar. Hearing so, Cap goes to hig
+[Scott presses the button, which activates Luis's van's Horn with the song La Cucaracha, which is heard from afar. Hearing so, Cap goes to high
