@@ -3029,4 +3029,4 @@ THOR: Quail– you– that– that's your own–
 
 QUILL: Quail?
 
-THOR: –insecurities in there. Okay? I'm merely tr
+THOR: –insecurities in there. Okay? I'm merely try
