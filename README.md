@@ -882,4 +882,4 @@ STEVE ROGERS: You did.
 
 TONY STARK: Oh, did I? [acting like he did not; there's the Tony we know] Thank God I'm here. Regardless, I fixed it. [He holds up his right hand, with a device on it] A fully functioning Time-Space GPS. I just want peace. [Makes peace sign with his fingers] Turns out, resentment is corrosive, and I hate it.
 
-STEVE ROG
+STEVE ROGE
