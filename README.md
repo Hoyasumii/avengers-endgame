@@ -1863,3 +1863,4 @@ FRIGGA (2013): Idiot? No. A failure? Absolutely.
 THOR: That's a little bit harsh.
 
 FRIGGA (2013): You do know what that makes you? Just like everyone else.
+
