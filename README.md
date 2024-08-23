@@ -414,4 +414,4 @@ NATASHA ROMANOFF: Alright.
 
 CAROL DANVERS: [To Rhodey] Good luck. [cuts off call]
 
-[Except for Rhodes. Nat sighs exh
+[Except for Rhodes. Nat sighs exha
