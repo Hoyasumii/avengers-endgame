@@ -3041,4 +3041,4 @@ NEBULA: Sounds fair.
 
 [Quill looks around]
 
-QUILL: It's not nec
+QUILL: It's not nece
