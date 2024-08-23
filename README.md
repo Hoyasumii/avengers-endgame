@@ -782,4 +782,4 @@ BRUCE BANNER: Okay, here we go. Time travel test number one. Scott, fire up the 
 
 [Scott opens the portal]
 
-STEVE ROGERS: Breakers are set, emergency g
+STEVE ROGERS: Breakers are set, emergency ge
