@@ -2370,4 +2370,4 @@ CLINT BARTON: You're a pain in my ass, you know that?
 
 [Both Clint and Natasha lean their heads against each other]
 
-CLINT BARTON: Okay. 
+CLINT BARTON: Okay. Y
