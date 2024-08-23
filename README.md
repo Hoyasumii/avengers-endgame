@@ -60,4 +60,4 @@ TONY STARK: Fair game. Good sport. [Nebula shakes Tony's hand] Have fun?
 
 NEBULA: It was fun.
 
-[Camera switches to see Iron Man's busted helmet. Tony Stark's hand reaches forward to turn on the helmet. We pan out to see that he's sitting on the floor of a gloomy Benatar. The weight of the recent events of INFINITY 
+[Camera switches to see Iron Man's busted helmet. Tony Stark's hand reaches forward to turn on the helmet. We pan out to see that he's sitting on the floor of a gloomy Benatar. The weight of the recent events of INFINITY W
