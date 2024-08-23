@@ -1682,4 +1682,4 @@ SCOTT LANG: That wasn't supposed to happen, was it?
 
 TONY STARK: Oh, we blew it.
 
-THOR (2012): L
+THOR (2012): Lo
