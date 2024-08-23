@@ -68,4 +68,4 @@ TONY STARK: This thing on? [The helmet scans Tony. Tony leans against the wall w
 
 [A vast bluish nebula illuminates the space surrounding them. Cut to a shot of Tony's face, which for the first time shows age and weakness. There is a light on his face, which grows brighter and brighter until he's forced to open his eyes. The camera pans around to the light source, which is slowly revealed to be CAROL DANVERS.]
 
-[A bathroom in the Avengers compound. We see Steve Roge
+[A bathroom in the Avengers compound. We see Steve Roger
