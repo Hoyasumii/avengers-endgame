@@ -1222,4 +1222,4 @@ RHODEY: No, I'm pretty sure he's dead.
 
 [Thor wakes up]
 
-THOR: Where to start? Umm... The Aether, first, is not a stone, someone called it a stone before. It's more of a... an angry sludge thing, so... someones gonna need to amend that. Here's an interesting story though, many years ago... My grandfather had to hide the stones from the Dark Elves... [He wiggles his fingers to imitate a spooky ghost] Wooooh, scary beings. So Jane, [An image of Jane Foster pops up on the screen] Oh, there she is. That's Jane... She's... an old flame o
+THOR: Where to start? Umm... The Aether, first, is not a stone, someone called it a stone before. It's more of a... an angry sludge thing, so... someones gonna need to amend that. Here's an interesting story though, many years ago... My grandfather had to hide the stones from the Dark Elves... [He wiggles his fingers to imitate a spooky ghost] Wooooh, scary beings. So Jane, [An image of Jane Foster pops up on the screen] Oh, there she is. That's Jane... She's... an old flame of
