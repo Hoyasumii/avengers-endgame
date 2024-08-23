@@ -3118,3 +3118,4 @@ BRUCE BANNER: I don't know. He blew right by his time stamp. He should be here.
 [Bucky turns around from the pad]
 
 Sam Wilson: Well, get him back.
+
