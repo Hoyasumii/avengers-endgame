@@ -2094,4 +2094,4 @@ TONY STARK: 1-9-7-0.
 
 STEVE ROGERS: Are you sure?
 
-SCO
+SCOT
