@@ -1714,4 +1714,4 @@ STEVE ROGERS (2012): What?
 
 STEVE ROGERS: That is America's ass.
 
-[Scene cuts back to Bruce and The Ancient 
+[Scene cuts back to Bruce and The Ancient O
