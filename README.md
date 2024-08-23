@@ -2700,4 +2700,4 @@ NEBULA (2014): He won't let me.
 
 GAMORA (2014): NO!
 
-[Present Nebula shoots Nebula (20
+[Present Nebula shoots Nebula (201
