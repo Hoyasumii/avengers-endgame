@@ -1258,4 +1258,4 @@ NATASHA ROMANOFF: That Time Stone guy...
 
 BRUCE BANNER: Doctor Strange.
 
-NATASHA ROMANOFF: Yeah, wh
+NATASHA ROMANOFF: Yeah, wha
