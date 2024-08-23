@@ -2548,4 +2548,4 @@ BRUCE BANNER: Rhodey, Rocket, get outta here!
 
 ROCKET: Hurry up! Hurry up! Come on!
 
-[Rhodey gets Rocket out and they both sigh in rel
+[Rhodey gets Rocket out and they both sigh in reli
