@@ -2893,4 +2893,4 @@ ROCKET: Oh, yeah!
 
 STEVE ROGERS: Danvers, we need an assist here.
 
-[Cut to Scott finally activating the Quantum Tunnel. Then cut to Carol Danvers landing near Peter, who is on the ground, weirdly hugging the gauntl
+[Cut to Scott finally activating the Quantum Tunnel. Then cut to Carol Danvers landing near Peter, who is on the ground, weirdly hugging the gauntle
