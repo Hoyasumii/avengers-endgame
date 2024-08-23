@@ -1180,4 +1180,4 @@ BRUCE BANNER: [Turning to Clint] Alright, Clint. We're going in 3... 2... 1!
 
 [Clint look around his family home, which unlike at the start of the movie, looks a lot more alive. The helmet pops off of Clint's head, and he looks around bewildered. He sees a baseball glove on the ground, presumably belonging to one of his sons, and picks it up. We hear a noise from inside the house, someone who Clint hasn't seen for five years.]
 
-LILA BARTON: [offscr
+LILA BARTON: [offscre
