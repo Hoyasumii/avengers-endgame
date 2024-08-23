@@ -1862,4 +1862,4 @@ FRIGGA (2013): Idiot? No. A failure? Absolutely.
 
 THOR: That's a little bit harsh.
 
-F
+FR
