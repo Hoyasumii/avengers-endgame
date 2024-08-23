@@ -568,4 +568,4 @@ TONY STARK: Or screw it up worse than he already has, right?
 
 STEVE ROGERS: I don't believe we would.
 
-TONY STARK: Gotta say, sometimes I miss that giddy optimism. However, high hopes won
+TONY STARK: Gotta say, sometimes I miss that giddy optimism. However, high hopes won'
