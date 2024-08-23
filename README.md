@@ -2310,4 +2310,4 @@ RED SKULL (2014): Natasha, daughter of Ivan. Clint, son of Edith.
 
 NATASHA ROMANOFF: Who are you?
 
-RED SKULL (2014): Consider me a guide. 
+RED SKULL (2014): Consider me a guide. T
