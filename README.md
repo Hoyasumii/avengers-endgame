@@ -1540,4 +1540,4 @@ TONY STARK: All right, you're up, little buddy. [Looking at the briefcase with t
 
 SCOTT LANG: [Lying down on Tony's shoulder] Alright. Flick me.
 
-[Tony flicks Scott 
+[Tony flicks Scott o
