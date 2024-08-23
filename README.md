@@ -1708,4 +1708,4 @@ STEVE ROGERS (2012): Where did you get this?
 
 STEVE ROGERS: Bucky... is... alive!
 
-STEVE 
+STEVE R
