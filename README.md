@@ -1960,4 +1960,4 @@ RHODEY: Sync up. [They both suit up.] Three.. two.. one...
 
 BRUCE (Memory): You murdered trillions!
 
-THANOS (Memory): You should be grateful
+THANOS (Memory): You should be grateful.
