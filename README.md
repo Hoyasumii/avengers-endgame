@@ -330,4 +330,4 @@ STEVE ROGERS: That's great. You did the hardest part. You took the jump, you did
 
 (The camera pans to San Francisco Bridge, all the way to a self-storage facility with a sign saying "U-STORE It, SELF STORAGE", with its interior filled with stored stuff and junk until it spots Luis' van from "Ant-Man and the Wasp", behind a metallic fence with a label named "LANG". A rat crawls over the van's rear windshield and accidentally activates the controls for opening the Quantum Realm, haphazardly activating the Quantum Tunnel. The rear door busts open, flinging Lang outside the van.)
 
-Scott Lang: (grun
+Scott Lang: (grunt
