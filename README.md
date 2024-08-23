@@ -866,4 +866,4 @@ BRUCE BANNER: [holds up his his hands in a dramatic way] Time travel!
 
 [Steve says nothing. He simply shakes his head and walks away]
 
-BRUCE BANNER: What? I..I see this as an a
+BRUCE BANNER: What? I..I see this as an ab
