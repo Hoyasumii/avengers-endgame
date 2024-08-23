@@ -2116,4 +2116,4 @@ TONY STARK: Right. Well, imagine you're SHIELD, running a quasi-fascistic intell
 
 STEVE ROGERS: In plain sight.
 
-[Tony and Steve are in an elevator wi
+[Tony and Steve are in an elevator wit
