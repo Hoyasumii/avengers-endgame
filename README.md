@@ -1032,4 +1032,4 @@ THOR: [walks over and looks out the window and points, still holding his beer] W
 
 BRUCE BANNER: I think we can bring them back.
 
-THOR: Stop. stop, ok
+THOR: Stop. stop, oka
