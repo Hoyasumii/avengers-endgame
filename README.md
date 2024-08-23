@@ -2650,4 +2650,4 @@ THANOS (2014): I'm thankful. Because now, I know what I must do. [stands up] I w
 
 STEVE ROGERS: Born out of blood.
 
-THANOS (2014)
+THANOS (2014):
