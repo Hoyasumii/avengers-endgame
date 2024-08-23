@@ -1620,4 +1620,4 @@ TONY STARK: [To present Scott through radio as he inhales sharply] All right, mo
 
 TONY STARK(2012): I'm not gonna argue who's got the higher authority here, all right?
 
-SCOTT LANG: You promise me y
+SCOTT LANG: You promise me yo
