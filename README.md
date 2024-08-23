@@ -1304,4 +1304,4 @@ NATASHA ROMANOFF: [Smiling excitedly] See you in a minute.
 
 [The First Group which has Tony, Steve, Bruce, & Scott; travels to New York in 2012. A previous stock shot of the Chitauri snarling and the iconic circle take around our six Original Avengers assembling before panning over to a side street where Scott, Steve, Banner and Tony materialise.]
 
-STEVE ROGERS: All right, we all have our assignments. Two Stones uptown, one Stone, down. Stay low. Keep an eye o
+STEVE ROGERS: All right, we all have our assignments. Two Stones uptown, one Stone, down. Stay low. Keep an eye on
