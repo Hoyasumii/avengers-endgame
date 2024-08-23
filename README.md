@@ -2276,4 +2276,4 @@ EDWIN JARVIS: You meet a lot of people, sir.
 
 HOWARD STARK: Seems very familiar. Weird beard.
 
-[2014 Nebula has captured 2023 Nebula and 2014 Nebula is fighting her futur
+[2014 Nebula has captured 2023 Nebula and 2014 Nebula is fighting her future
