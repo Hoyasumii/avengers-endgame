@@ -2668,4 +2668,4 @@ NEBULA: Father.
 
 [Clint gasped and finds out that she's from 2014]
 
-NEBULA (2014): I have the ston
+NEBULA (2014): I have the stone
