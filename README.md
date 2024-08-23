@@ -2859,4 +2859,4 @@ PETER PARKER: Activate Instant Kill!
 
 THANOS (2014): Rain fire!
 
-CORVUS GLAIVE: But 
+CORVUS GLAIVE: But s
