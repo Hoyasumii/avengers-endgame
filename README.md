@@ -604,4 +604,4 @@ SCOTT LANG: Yeah, but I mean, what are we gonna do? We need him. What, are we go
 
 STEVE ROGERS: No, I wanna do it right. We're gonna need a really big brain.
 
-SCOTT LANG: (Incredulous, pointing to Tony's house) Bigger than 
+SCOTT LANG: (Incredulous, pointing to Tony's house) Bigger than h
