@@ -1498,4 +1498,4 @@ STEVE ROGERS: Got it. I'm approaching the elevator now.
 
 LOKI (2012): If it's all the same to you... I'll have that drink now.
 
-TONY STARK (2012): All right, get him on his feet. We can all stand around posing up a sto
+TONY STARK (2012): All right, get him on his feet. We can all stand around posing up a stor
