@@ -1392,4 +1392,4 @@ CLINT BARTON: Hey, can we hurry it up?
 
 NATASHA ROMANOFF: Guys, chop-chop. Come on. We're on a clock.
 
-[Nebula walks out of the ship, ap
+[Nebula walks out of the ship, app
