@@ -684,4 +684,4 @@ NATASHA ROMANOFF: Well, you pulled this off. I remember a time when that seemed 
 
 [The scene cuts to Tony Stark in the kitchen washing dishes after dinner. As he finishes the last of them, stumbles upon a photo of both Stark and Parker, with Parker holding his Stark Internship certificate. Tony finally knows what he's fighting for.]
 
-[Cut to Tony talking to his computer, generating a holographic model of something he's w
+[Cut to Tony talking to his computer, generating a holographic model of something he's wo
