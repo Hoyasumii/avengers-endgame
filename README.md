@@ -2508,4 +2508,4 @@ F.R.I.D.A.Y.: Yes, boss.
 
 BRUCE BANNER: Everybody comes home.
 
-[Bruce puts on the gauntlet, which nanobot
+[Bruce puts on the gauntlet, which nanoboti
