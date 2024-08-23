@@ -1448,4 +1448,4 @@ NEBULA (2014): Where?
 
 GAMORA (2014): On a planet called Morag.
 
-NEBULA (2014): Father's plan is finally in moti
+NEBULA (2014): Father's plan is finally in motio
