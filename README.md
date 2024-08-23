@@ -906,4 +906,4 @@ STEVE ROGERS: We're working on that right now.
 
 ROCKET: Hey, humie! Where's Big Green?
 
-SCOTT LANG: Uh, Kitchen, I think. [To himself as he sees Nebula] That's awe
+SCOTT LANG: Uh, Kitchen, I think. [To himself as he sees Nebula] That's awes
