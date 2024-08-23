@@ -618,4 +618,4 @@ SCOTT LANG: Right. No, no, that's not what I meant.
 
 BRUCE BANNER: [dropping the act] No, I get it. I'm kidding! I know. It's crazy. I'm wearing shirts now.
 
-SCOTT 
+SCOTT L
