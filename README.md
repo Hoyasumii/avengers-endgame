@@ -328,4 +328,4 @@ STEVE ROGERS: That's great. You did the hardest part. You took the jump, you did
 
 [Screen Title: SAN FRANCISCO]
 
-(The camera pans to San Francisco Bridge, all the way to a self-storage facility with a sign saying "U-STORE It, SELF STORAGE", with its interior filled with stored stuff and junk until it spots Luis' v
+(The camera pans to San Francisco Bridge, all the way to a self-storage facility with a sign saying "U-STORE It, SELF STORAGE", with its interior filled with stored stuff and junk until it spots Luis' va
