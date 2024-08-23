@@ -1154,3 +1154,4 @@ CLINT BARTON: Well, that's what I heard.
 
 BRUCE BANNER: What? By who? Who told you that?
 
+R
