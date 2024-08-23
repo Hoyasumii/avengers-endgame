@@ -844,4 +844,4 @@ BRUCE BANNER: It's Scott.
 
 STEVE ROGERS: As a baby!
 
-BRUCE BANNER: He'll g
+BRUCE BANNER: He'll gr
