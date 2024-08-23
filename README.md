@@ -2903,4 +2903,4 @@ PETER PARKER: [Gets up and passes her the gauntlet] I don't know how you're gonn
 
 [Wanda arrives, Valkyrie flying on her Pegasus as she arrives.]
 
-W
+WA
