@@ -1852,4 +1852,4 @@ FRIGGA (2013): We can talk.
 
 [They both hug each other. Scene cuts to Jane Foster waking up while Rocket sneaks behind her to extract the Aether. Scene cuts back to Thor and Frigga's conversation.]
 
-THOR: His head wa
+THOR: His head was
