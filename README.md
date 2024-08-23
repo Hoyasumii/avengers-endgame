@@ -2543,3 +2543,4 @@ ROCKET: I can't breathe. I can't breathe! I can't breathe.
 RHODEY: Canopy. Canopy. Canopy. [Rhodey gets out of his damaged suit]
 
 BRUCE BANNER: Rhodey, Rocket, get outta here!
+
