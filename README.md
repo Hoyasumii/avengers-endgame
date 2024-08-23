@@ -2208,4 +2208,4 @@ HOWARD STARK: My wife's expecting. And, uh– Too much time in the office.
 
 TONY STARK: Congratulations.
 
-HOWARD STARK: Thanks. Hold 
+HOWARD STARK: Thanks. Hold t
