@@ -2276,4 +2276,4 @@ EDWIN JARVIS: You meet a lot of people, sir.
 
 HOWARD STARK: Seems very familiar. Weird beard.
 
-[2014 Nebula 
+[2014 Nebula h
