@@ -1512,4 +1512,4 @@ NATASHA ROMANOFF (2012): Who gets the, uh, magic wand?
 
 TONY STARK (2012): STRIKE team's coming to secure it.
 
-[A Hydra team including Rumlow and Sitwell enter, 
+[A Hydra team including Rumlow and Sitwell enter, k
