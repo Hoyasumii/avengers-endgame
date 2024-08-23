@@ -1704,4 +1704,4 @@ STEVE ROGERS: [Standing up] Yeah, I know. I know.
 
 STEVE ROGERS (2012): Where did you get this?
 
-[Steve (2012) has future St
+[Steve (2012) has future Ste
