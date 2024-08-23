@@ -2484,4 +2484,4 @@ BRUCE: Lightning won't help you, pal. It's gotta be me.
 
 BRUCE BANNER: You saw what those stones did to Thanos. It almost killed him. None of you could survive.
 
-STEVE ROGERS: How do 
+STEVE ROGERS: How do w
