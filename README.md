@@ -346,4 +346,4 @@ Scott Lang: [yells] Kid! Hey kid!
 
 Scott Lang: What the hell happened here?
 
-[The kid still stares at him and is almost about to tear up, but immediately turns away from him and move on. Lang still gives the same confused look, as he arrives in somewhat a memorial called "THE VANISHED", with all the names of the people who became vic
+[The kid still stares at him and is almost about to tear up, but immediately turns away from him and move on. Lang still gives the same confused look, as he arrives in somewhat a memorial called "THE VANISHED", with all the names of the people who became vict
