@@ -1686,4 +1686,4 @@ THOR (2012): Loki!?
 
 [Cut to a walkway several floors up. Steve is having trouble on his communicator.]
 
-STEVE ROGER
+STEVE ROGERS
