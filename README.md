@@ -2784,4 +2784,4 @@ NEBULA: The choices were him, or a tree.
 
 [Later, Clint is seen running with the gauntlet]
 
-CLINT BA
+CLINT BAR
