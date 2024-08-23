@@ -926,4 +926,4 @@ BRUCE BANNER: Hey, have a little compassion, pal. First they've lost Asgard, the
 
 VALKYRIE: You shouldn't have come!
 
-BRUCE BANNER: Ah, Valky
+BRUCE BANNER: Ah, Valkyr
