@@ -288,4 +288,4 @@ RHODEY: We have to tear this place apart, he-he-he has to be lying.
 
 NEBULA: My father is many things. A liar is not one of them.
 
-THANOS: Ah, thank you, daughter. [Nebula looks down, a little uncomfortable.] Perhaps I treated you too harshl
+THANOS: Ah, thank you, daughter. [Nebula looks down, a little uncomfortable.] Perhaps I treated you too harshly
