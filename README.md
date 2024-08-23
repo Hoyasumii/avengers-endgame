@@ -136,4 +136,4 @@ TONY STARK: Right?
 
 RHODEY: You made your point. Just sit down.
 
-TONY STARK: Oka
+TONY STARK: Okay
