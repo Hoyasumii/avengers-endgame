@@ -1586,4 +1586,4 @@ RUMLOW (2012): Sorry, Cap. I can't give you the scepter.
 
 SITWELL (2012): I'm gonna have to call the Director.
 
-STEVE ROGERS: That's okay. Trust me. [Steve leans over to Si
+STEVE ROGERS: That's okay. Trust me. [Steve leans over to Sit
