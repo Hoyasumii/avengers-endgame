@@ -1294,4 +1294,4 @@ BRUCE BANNER: Tractors engaged.
 
 ROCKET: [Addressing the shrunk Benatar in Clint's hand] You promise to bring that back in one piece, right?
 
-CLINT BARTON: Yeah, yeah, yeah, yeah. Okay. I'll do my b
+CLINT BARTON: Yeah, yeah, yeah, yeah. Okay. I'll do my be
