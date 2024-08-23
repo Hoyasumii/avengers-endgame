@@ -1168,4 +1168,4 @@ SCOTT LANG: Die Hard? No, it's not one...
 
 RHODEY: This is known.
 
-BRUCE BANNER: I don't know why everyone believes that, but that isn't true. Think about it: If you travel to the past, that past becomes your future. And your former 
+BRUCE BANNER: I don't know why everyone believes that, but that isn't true. Think about it: If you travel to the past, that past becomes your future. And your former p
