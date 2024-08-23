@@ -28,4 +28,4 @@ NATHANIEL BARTON: How about ketchup?
 
 LAURA BARTON: Ketchup? [Camera switches back to Clint and his daughter] I can do ketchup.
 
-CLINT BARTON: Mind your elbow. [Lila releases the arrow and it hits the target directly in the bullseye.] Hahaha! Good job, Hawkeye. Go get yo
+CLINT BARTON: Mind your elbow. [Lila releases the arrow and it hits the target directly in the bullseye.] Hahaha! Good job, Hawkeye. Go get you
